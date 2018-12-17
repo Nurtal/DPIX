@@ -1,1 +1,406 @@
-sŒ£’Ÿ¡}–£’Ÿ¡}–£’Ÿ¡}–™ˆ|—s‰³èÊâæ¿ÌÈéØÛâ·‰ĞåÉçàµ‰†™o•—}–£’Ÿ¡}–£’Ÿ¡}–£’Ÿ¡}Œ†€ˆ•”ÀÛÈ–Õäã³ÎÖé…ÖÕÄÊƒÜÎŞÙpƒİÊàÙÂÊ×Û…äÕ¾ÍÒã…ÖÕÄÊm™ˆ’Ú¿Ûƒºµ»Ì~s†™o•—p¶¤Ä®¸¹£½€ˆ•}Y–¡–Ì×âµÛÄêÊÑæ±×ÇåÒÑØ±İÄ€ˆ•}Y–¡–Óáæ½ÊÏßß×Ó´Ê××o•—Yr´…áêµÛÆâÔÕß¯ÍÄêÆåÙÄs†™n{¡‰ÕÛËáæ½Ê×ÕÎàäÅİÂÚÆæÕÃÎ×éo•—Yr´…äÙ¶ØÕãÆæÓ¹×ÓëÙÑØ±İÄéÊæçZŒ†nŸ²pĞÈêÄàé½ËÈèÄáÚ¯ÌÒâÚßâÃÈÌäÄÕçÆÈÉßÑ×~sŒm™ˆ|~ZÍÈÜ…àãÂÖÄâÎìÙ¯ÍÄêÆšØ±İÄÕËÛàµ’€n•—Zr†™…Ÿ²p¼Æ×Ñ×”xÌÈäÙäÙÂ‰Ñå×ßÙÂ’ƒêÍ×”´Ê××o{—s‰ÄäÉ’ëÂÒ×Û…æÜµ‰Ç×ÙÓ”¹×ƒäÊé”¯ÜÆ×Ñ×ØpÍÄêÆ|}sŒƒÜÎŞÙZr†™o|}sŒƒßÒâãÂİÄêÎáâZrÉèÔß”¾ŞĞæŞ’İ½ÙÒèÙ’Ûµ×ÉèÔßèÈİmËäã½‰ÖáÑ×ÕÂ×ƒßÒâãÂİƒæ××äÂØÆÛØåİ¾Ğm€n•—p°Èê…æÜµ‰ËÛÆÖÙÂslÙÒâèp¦ƒ¦o{ÜµÊÇÛ×’±p‹…€nÛâÀŞ×ÕÉÓè±‰ –ÔâÙ¾‘Ç×ÙÓÓ¶ÒÏÛ‘’–Â‹Œ€nØãÂ‰ÏßÓ×”¹×ƒßÓâéÄÈÇ×ÙÓ®ZrlâÎàÙp¦ƒâÎàÙ~ÛÈæÑÓ×µ‘…ÒÓ” p‹…Ÿo{}¹Ï‹ÙÒâèp¦ –•›®ZrlÍ×Õ´ÎÕ–¢’à¹×È€n{×½Ù×–¯”slßÓâéÄÈÇ×ÙÓ¢³ÕÒéÊšZsl™ˆ’»µİƒ×ÓÖ”ÃÌÄâÊ’Ø±İÄ€nÖÕÄÊƒ³…ÙÙ¾ÏÕåÒæìÄ‘Ç×ÙÓÓ¶ÒÏÛ‘’ØµÕÌãÎæÙÂ¦Š¢Œ›~YÍÄêÆÑç³ÊÏÛÉ’±pÙÕÛÕäã³ÎÖéÎàÛ~ÜÆ×Ñ×œ´Ê××À£®­’m€n•—pÀÕßÙ×”¾ÎÚ–ËÛàµslåÚæäÅİÂÜÎŞÙ¯×ÄãÊ’±pÍÄêÆÑÚ¹ÕÈ¤Øâà¹İ‹˜“”ZrÒëÙâéÄÈÉßÑ×Ó¾ÊĞÛ…¯”¿Ş×æÚæÓ¶ÒÏÛÄàÕ½Î¾¦Â–¯ÜÆ×Ñ×Ø~ÌÖì‡|~YØØêÕçè¯ÍÄêÆ’±pØÓÛÓšãÅİÓëÙÑÚ¹ÕÈÕÓÓáµ•ƒ˜Ü”ZrÒëÙâéÄÈÇ×ÙÓ¢ÇÛÌêÊšÜµÊÇÛ×–¬×…Ÿo|}¶ØÕ–Û××ÄØÕ–Îà”´Ê××Äå×±ÕÈÚŸ|}YßÈÙÙáæ¯İÒÕÜäİÄÎƒ³…”–ZrlÜÔä”ÃÌÄâÆä”¹×ƒìÊÕè¿Û€n{}ÆÎÆêÔäÓÄØÂí×Ûèµ‰³…åèÂ‘ÖÙÆŞÕÂ’˜‘”~YrÙÛÈæãÂÈ×åÄéæ¹İÈ–¢’êµÌ×å×Ñè¿ÈÚèÎæÙ«£§Â|}YØØêÕçè¯ÍÄêÆ ëÂÒ×ÛèÙ³İÒèÄæã¯àÕßÙ×ŸrÅÑ˜|}¿Ş×æÚæÓ´Ê××“Õà¿ÜÈ|~ZsÇÛË’ãÆÎÕÙÑá×»ÈÇ×ÙÓçµİ‹ßÓâéÄÈÇ×ÙÓçµİ–ÈŞÕÃÜÌÜÎÕÕÄÒÒäÄèÕÂÒÄØÑ×ÓÀØÖßÙÛã¾•ƒßÓÕæµÊÖÛÄØÕ³İÒè¬~Y‹…˜o{½‰³È´¹Æ•¼¶€o{ÆµÙÈ×Ù’âpİÌãÊ’œ·ÒÙÛÓ’ÖÉ‰ÌäÈäÙ±ÜÈÕËÓ×ÄØÕŸ…×Õ³ÑƒìÆäİ±ËÏÛ…ÛâpİËÛ…ÖÕÄÊÖÛÙ”ÅÜÈ–Ùá”³ÛÈ×Ù×~YËÌİ…Ûá±ĞÈé…æãpÙÕåÈ×çÃ—m‡”–Zsl™ˆ’İ½ÙÒèÙÓè¹ØÑ€nÛáÀØÕê…âÕ¾ÍÄé…ÓçpÙÇ€o{—s‰Ó××ÓáµİÈèØ|}¿Ş×æÚæÓ¶ÒÏÛÄàÕ½Îƒ³…ÛâÀŞ×ÕÉÓè±ÜÈê“åä¼Ò×‡ –yslåÚæäÅİÂÜÎŞÙ¯×ÄãÊ’±pØØêÕçè¯ÏÌâÊÑâ±ÖÈÑ•ÏŸrÈÒìÊä×¼ØÆáÊÖ¢³ÜÙ˜o|}sŒƒèÊÓØpÍÄêÆ”¹ÍÈäÙÛÚÉ‰Ï×Ç×àpßÄèÎÓÖ¼ÎmÉÓè±ÜÈê…¯”ÀÍ‘èÊÓØ¯ÌÖìÛâÀŞ×ÕÉÓè±ÜÈê|}³ÕÄéØÑà±ËÈâ…¯”´Ê××Ø×è~ÔÈïØš«ÌÏ×Øåİ¶ÒÆ×ÙÛã¾ÈÙ××ÛÕ²ÕÈÕÕáç¹İÌåÓÏ~YÌÏ×ØåÓ´Ê××…¯”´Ê××Ø×è«ÌÏ×ØåÓ¼ÊÅÛÑÏ~Zr†™…äÙ½ØÙÛ…ŞÕ²ÎÏ–ÛÓæ¹ÊÅâÊ|}´Ê××Ø×èp¦ƒÚÆæÕÃÎ×¤ÉäãÀ‘ÆåÑçá¾Ü ÑÈŞÕÃÜÂâÆÔÙ¼ÆŒ€náæ¹ĞÌäÆŞÓ¼ÊÅÛÑå”‰Ç×ÙÓçµİ‘áÊëçx’m€n•—pÒÑÙ××ÕÃÎƒÚÆæÕÃÎ×–ØÛîµslÜÔä”È‰Ìä…êæ±×ÊÛ£ ¹×ÆèÊÓçµÈÉ×ÈæãÂ’€n{Ú¿ÛƒâÆÔÙ¼‰Ìä…áæ¹ĞÌäÆŞÓ¼ÊÅÛÑå®ZrlÉÓè±ÜÈêÀåèÂ‘Ï×Ç×ày”…ÕÈŞã¾ÎÂ˜åèÂ‘ÛŸÂ’±pÍÄêÆåÙÄÄÏ×Ç×à­slÕäİ¾İƒ˜ÀÑp¸ÙÛ×Õà¿ÌÎßÓÙ”Š‰…¡Øææx‘ÉâÔÓèxáŒ¥ËŞã±İ‹ßÓÕæµÊÖÛÄØÕ³İÒè›™“¤•›Ÿrƒ¹Ôßä¼Î×ÛÉ”~YÙÕßÓæ”rÄÓ…ÁêµÛÆâÔÕß¹×Ê–Ÿ’–{Ü×è£¤€—“Ÿ”™p¬ÒãÕŞÙÄÎÇ˜o|}sŒƒèÊŸÕ´ÍƒâÆÔÙ¼‰×å…æÜµ‰Ç×ÙÓçµİmÉÓè±ÜÈêÀÕà±ÜÖÕÑÓÖµÕÀ–¢’×¼ÊÖéÄÖÕÄÊm€n•—pÜÄìÊ’Ø±İÄéÊæ”¹×ƒ×…Øİ¼ÎmÉÓè±ÜÈê“æã¯ÌÖìáéÄÙØêÄØİ¼ÎÂäÆßÙ|‰ÌäÉ×ì¯ÄâØ×ZsmÚÊØ”ÂÎÉå×ßÕÄÈÌäÕçè¯ÍÄêÆåÙÄÜ‹ßÓâéÄÈÇ×ÙÓçµİ–ÈŞÕÃÜÌÜÎÕÕÄÒÒäÄèÕÂÒÄØÑ×ÓÀØÖßÙÛã¾•ƒÜÔä×µÈÖçÚÓæµÈĞ×ÙäİÈ’€n•—Zr†™…»Âp½¨É¹’Ä˜ª¶»o{—ssl™ˆ’ÆµÏÒèÒÓèpİËÛ…ÛâÀŞ×ÕÉÓè±ÜÈê…æãpËÈ–Õäã³ÎÖéÊÖ”¾âƒêÍ×” ª·ÈªÂ”¶ŞÑÙÙÛã¾Ümˆ•”³ÕÄéØÛÚ¹ÌÄêÎáâ¯ßÄèÎÓÖ¼ÎÂæÔåİÄÒÒä…ÛçpÊÑ–ÎàèµĞÈè‘’è¸ÎƒæÔåİÄÒÒä…áÚZr†™…æÜµ‰ÆâÆåç¹ÏÌÙÆæİ¿×ƒìÆäİ±ËÏÛ…ÛâpİËÛ…ÚÙ±ÍÈè“|}sŒmˆ•”¶ØÕÙÊÑçÁŞÄèÊÑá±İÕßİ’İÃ‰Ä–Çáã¼ÎÄä‘’Õ´Íƒ˜É×Õ´‰Ù××ÛÕ²ÕÈé‡’è¿‰ÊÛÙ|}sŒƒ×…ååÅÊÕÛ…ßÕÄÛÌî…ÛâpİËÛ…×â´—mˆ•~YŒ†–µäã´ŞÆÛ…Ó”½ÊÑßË×çÄ‰ÉßÑ×”ÄØƒãÆâ”ÄÑÈ–ÛÓæ¹ÊÅâÊå”ÄØƒêÍ×İÂ‰ÑëÒÔÙÂsl™ˆ’ÄÂØÇëÈ×”±‰ÆâÆåç¹ÏÌÙÆæİ¿×ƒÜÎŞÙpİÒ–ÒÓäpİËÛ…áÖÃÎÕìÆæİ¿×Ö–Ùá”ÄÎÌè…Õà±ÜÖ€n•—Zr†™…Éµ¢·¬Ä¬’±‰¶ÛÊßçpİÒ–ÇçÛpàËÛÓ’×¼ÊÖéÎØİ³Ê×ßÔà”ÆÊÕßÆÔàµ‰Ìé…ÛâpÙÒéÎæİ¿×ƒ¦o{—ssmˆ•”¹ÖÓå×æÕÄÒÒäo{İ½ÙÒèÙ’á±İË€o{İ¶‘Éå×ÕÙ¯ÜÔëÆäÙ¯ÖÄê×Ûìy£m€n{—s‰ÊÛÙ’è¸ÎƒäÚßÖµÛƒåË’ê±ÛÌ×ÇŞÙÃslÓçá²ÎÕÕÔØÓÆÊÕßÆÔàµÜƒ³…Ÿ¥ZrlßÓâéÄÈÇ×ÙÓ”‰ÒæÊàœ¹×ÓëÙÑØ±İÄéÊæ p‹Õ˜|}YÌĞæÙ’±p™mnØãÂ‰ÏßÓ×”¹×ƒßÓâéÄÈÇ×ÙÓ®ZrlÎØœ³ÖÓê…¯±p™Œ°o{}YrÏßÓ×Ó¹×Â××äÕÉ‰ –ÑÛâµ—ÖæÑÛèx‹˜|}YrläÚßÖµÛÂåËÑê±ÛÌ×ÇŞÙÃ‰ –Ñ×âxÕÌäÊÑİ¾ÈÄè×Óíy–”€n{}³ÖÓê…±pšmnÛâÀŞ×ÕÉÓè±—ÆâÔåÙx’m€n{—s‰×ÛØæ”¹ÏƒíÊ’×±×ƒØÚÛà´‰Ä–Øãé±ÛÈ–ÒÓèÂÒÛ–ÜÛè¸‰×ŞÆæ~Yr×ÛØæÓÆÊÏëÊÑ¥p¦ƒãÆæÜ~ÜÔèÙšâÅÖÅÛ×Ñã¶ÈÙ××ÛÕ²ÕÈé|}YİÈéÙÑê±ÕØÛÄ¤”‰ÌäÙšèµÜ×ÕÛÓàÅÎÂ§|}YØÓêÎßÕ¼ÈÑëÒÔÙÂÈÒÜÄèÕÂÒÄØÑ×çp¦ƒäÚßÖµÛÂåËÑê±ÛÌ×ÇŞÙÃslÕäİ¾İƒ˜À¶¹’¾ªÓ…¯²pØÕßÌÛâ±ÕƒäÚßÖµÛƒåË’ê±ÛÌ×ÇŞÙÃ‰–‡çÄÛ‹åÕæİ½ÊÏÕÓçá²ÎÕÕÔØÓÆÊÕßÆÔàµÜŒ€n{İ¶‘ÉâÔÓèxİÈéÙÑê±ÕØÛÄ£”}‰×ÛØæÓÆÊÏëÊÑ¦y‰¡–•›®Zslnâæ¹××–‡Í¸•«¸½Â’±‰ÄÚÆâèp×ØãÇ×æpØÉ–ÛÓæ¹ÊÅâÊå–Zsln•—pÏÌäÉ’âµá×–Èáã¼‰ÑëÒÔÙÂ‰ÒÜ…èÕÂÒÄØÑ×çZrlÈÓâ¯ÍÒÕØááµİËßÓÙÓÇÒ×ŞÄæÜ¹Üƒ³…¸Õ¼ÜÈ€n{}ÇÑÌâÊšâ¿İƒÙÆàÓ´ØÂéÔßÙÄÑÌäÌÑë¹İËÕÙÚİÃ’€o{}Yr×ÛØæÓÆÊÏëÊÑ¥p¦ƒãÆæÜ~ÜÔèÙšãÀİÌãÆŞÓ¾ŞĞØÊäÓ¿ÏÂìÆäİ±ËÏÛØ›~YrlÙ×çÄÈÙ×ÑçÙ¯›ƒ³…ÛâÄ‘×ÛØæÓÆÊÏëÊÑ¥ysln{İ¶‘ÉâÔÓèxİÈéÙÑê±ÕØÛÄ£”}‰×ÛØæÓÆÊÏëÊÑ¦y‰ ³…¢Šsln{}³ÊÑÕÉáÓÃØĞÛÙÚİ¾ĞÂíÎæÜ¯İËßØ’±p½ÕëÊ|}YrlÛÑåÙŠsln{}¿Ù×ßÒÓà¯×ØãÇ×æ¯ØÉÕÛÓæ¹ÊÅâÊå}{¦ƒ§o|}YÙÕßÓæ”rÄ§»§Ç»­‰ ´…áäÄÒĞ×Ñ’âÅÖÅÛ×’ã¶‰Ù××ÛÕ²ÕÈé…¬”r”Öê×šãÀİÌãÆŞÓ¾ŞĞØÊäÓ¿ÏÂìÆäİ±ËÏÛØ›~Zrl™ˆ’·ÂÎÄêÊ’è¸ÎƒßÓÖÙÈ‰ÉßÑ×”¶ØÕ–ÛÓæ¹ÊÅâÊå~YrÒëÙâéÄÈÇ×ÙÓçµİÂäÆßÙp¦ƒßÓâéÄÈÇ×ÙÓçµİ‘éÕŞİÄ‘…¤‡›~YrÒëÙâéÄÈÇ×ÙÓçµİÂäÆßÙp¦ƒåÚæäÅİÂÚÆæÕÃÎ×ÕÓÓáµÄ“Ó”ÓÂÎÉå×ßÕÄÎÇ¤ÈåêrslÔçèÀŞ×ÕÉÓè±ÜÈê…¯”¿ÙÈäáéÄÙØêÄÖÕÄÊÖÛÙÑâ±ÖÈ¢…”ër’mnÛâÀŞ×ÕÉÓè±ÜÈê…¯”¿ÙÈäÛâÀŞ×ÕÉÓè±ÜÈê‘’–Â‹Œ€n{İ¾ÍÈîÄØİ¼Îƒ³…áäµ×‹˜ÛÓæ¹ÊÅâÊÑá±×ÌÜÊåè~ÌÖì‡”rà…Ÿo{}³ÕÄéØÛÚ¹ÌÄêÎáâ¯ÏÌâÊ’±pØÓÛÓš–¿ËÖÛ×èÕÄÒÒäØÑ×¼ÊÖéÎØİ³Ê×ßÔà¢³ÜÙ˜‘’–Ç‹Œ€n{×½Ù×–¢’¤Zslˆ•”³ÕÄéØÛÚ¹ÌÄêÎáâpßÄèÎÓÖ¼ÎÖ€n{×¼ÊÖéÄæã¯ÒÇ–¢’ïÍslÈŞÕÃÜÂßÉ’±p™m€n{Ú¿ÛƒâÎàÙpÒÑ–ÎàäÅİÂÚÆæÕÃÎ×°o{}YÕÌäÊ’±pÕÌäÊ æµÙÏ×È×œrÅÑ˜‘’–r’m€n{}sŒƒÙ××ÕÄÎƒäÊé”¸ÎÄÚÊä~Yrl™ˆ’×ÂÎÄêÊ’İ¾ÍÈî…Øİ¼Îmn{İ¶‘ÆãÕæ”¦“ŸŸ|}YrläÊéÓ¸ÎÄÚÊä”‰…˜o{}YrÏßÓ×Ó¹×Â××äÕÉ‰ –ÑÛâµ—ÖæÑÛèx‹˜|}YrlßÓÖÙÈ‰ –•|}YrlâÆåè¯ÛÈ×ÑÑê±ÛÌ×ÇŞÙ¯ÒÑÚÊê”‰§o{}YrÉå×’ê±ÛÌ×ÇŞÙpÒÑ–ÑÛâµÈÌäÄÓæÂÊÜ°o{}YrlßËšİ¾ÍÈî…“±pÌÏ×Øåİ¶ÒÆ×ÙÛã¾ÈÙ××ÛÕ²ÕÈÕÕáç¹İÌåÓ›®Zrln{}¾ÎÚÕÛÓæ¹ÊÅâÊ’±p‹Ù××ÛÕ²ÕÈÕ‡çÄÛ‹ßÓÖÙÈ’mn{}YrÏ×ØæÓÂÎÄâÄèÕÂÒÄØÑ×Ó¹×ÇÛİ’±pÒÑÚÊê~Yrln{âµàÂŞÊÓØµÛƒ¡¢’çÄÛ‹äÊéÓÆÊÕßÆÔàµ’˜‘”~Yrln{İ¾ÍÈîÄØİ¼Î‘í×Ûèµ‘Öê×šê±ÛÌ×ÇŞÙy‰˜‘””{Ü×èàÙÇÈÙ××ÛÕ²ÕÈŸ”Ğ¾‹Œ€n{}YrÌäÉ×ìp” ––|~Yrlˆ•”±ÍÇ–É×Õ´‰Ù××ÛÕ²ÕÈ–Ùá”¶Ò×–Æ’çÁŞÄèÊ’á±İÕßİ|}YrlßÓÖÙÈ‰ –ÑÓçÄÈÕÛÆŞÓÆÊÕßÆÔàµÈÌäÉ×ìp”ƒ§o{}YrÉå×’ìpÒÑ–İäÕ¾ĞÈÔâè¹ÖÄâÄàé½ËÈèÄáÚ¯ßÄèÎÓÖ¼ÎÖ–’’âÅÖÅÛ×Ñã¶ÈÙ××ÛÕ²ÕÈé¬~Zrln{—s‰ÇÛÆŞ”ÇÒ×Ş…æÜµ‰ÌäÉ×ìp” ––’ÚÂØĞ–ÑÓçÄ‰ÏåÔâ~YrlnàÙÇÈÙ××ÛÕ²ÕÈ–¢’–ÆÊÕßÆÔàµÈ…¡ØææxÒÑÚÊêZrln{âµàÂŞÊÓØµÛƒ¡¢’çÄÛ‹äÊéÓÆÊÕßÆÔàµ’˜‘”~YrlnÛâ´ÎÛÕËÛàµ—ÚèÎæÙxÜ×èèÕÂÒÄØÑ×p”…¢‡’ŸÃİÕÓ×ë¯ßÄèÎÓÖ¼ÎŒ¡‡Îâr’mn{}YÒÑÚÊê”{¦ƒ§o|}Yrl™ˆ’ËÂÒ×Û…æÜµ‰ÉßÓÓàpÑÈ×É×æZrlnàÙÇÈËÛÆÖÙÂ‰ –Ó×ë¯ÑÈ×É×æ«£§Â|}YrlåÚæäÅİÂÚÆæÕÃÎ×¤ÜäİÄÎ‹äÊéÓ¸ÎÄÚÊäŸrÅÑ˜|~Yrl™ˆ’Ú¹ÕÏ–ÔçèÀŞ×–ËÛàµsln•—pÌÕÛÆæÙpÌÏ×Øåİ¶ÒÆ×ÙÛã¾‰ÉßÑ×~YrlÛÑåÙŠsln{à¹×ÈÕÙáÓÇÛÌêÊ’±p‹…€n{}YÒÑÚÊê”‰“€n{}YÕÌäÊÑİ¾ÈÄè×Óíp¦ƒâÎàÙ~ÜÓâÎæœr•…Ÿo{}YrÉå×’ç³ÊÏ××’İ¾‰ÏßÓ×Ó¹×Â××äÕÉ£mn{}YÒÉÎàØµáƒ—¢’×¼ÊÖéÎØİ³Ê×ßÔàÓÆÊÕßÆÔàµÈÓåØÛè¹ØÑŸŸ|}YrlnŞİ¾ÎÂêÔÑëÂÒ×Û…±pÜ×èå×±ÕÄè’Ÿp‹˜o{}YrlÛÑåÙŠsmn{}Yr†™…ÓçÃØÆßÆæÙpÊÑ–ÎÖ”xÒÑêÊÙÙÂ’ƒêÔ’Ù±ÌË–ÈŞÕÃÜmn{}YrÌÜåèÂ‘ÖÙÆŞÕÂ’ƒäÔæ”¹×ƒÙÑÓçÃÈ×åÄÛØ~ÔÈïØšy£mn{}YrlÙÑÓçÃÈ×åÄÛØ«Ü×èå×±ÕÄèÏ”‰ÆâÆåç¯ÒÇ€n{}YrlÈŞÕÃÜÂßÉ’Ÿ‰”€o{}Yrlˆ•”ÇÛÌêÊ’İ¾‰ÆâÆåç¹ÏÌÙÆæİ¿×ƒÜÎŞÙZrln{}³ÕÄéØÛÚ¹ÌÄêÎáâ¯ÏÌâÊ ëÂÒ×ÛåèÂ‘ÆãÕæ”}šƒŸ…”r•…–’çÄÛ‹éÈÓà±ÛŒ¡…” r”ƒéÙäœ³ÕÄéØÑè¿ÈÌÚÀåèÂ‘ÖÙÆŞÕÂ’ÀŸ”Ğ¾‹Œ€n{}YrÌäÉ×ìp” §o|}Yrl™ˆ’Õ´ÍƒÚÊÓØpßÄèÎÓÖ¼ÎƒêÔ’Ú¹İƒ×…ååÅÊÕÛ…ßÕÄÛÌîo{}YrÉå×’ìpÒÑ–İäÕ¾ĞÈÔâè¹ÖÄâÄàé½ËÈèÄáÚ¯ßÄèÎÓÖ¼ÎÖ–’’âÅÖÅÛ×Ñã¶ÈÙ××ÛÕ²ÕÈé¬~YrlnŞİ¾ÎÂêÔÑëÂÒ×Û…±pÜ×è¢{‹˜o|}YrlâÎàÙ¯İÒÕÜäİÄÎƒ³…Şİ¾ÎÂêÔÑëÂÒ×ÛÀ¬¡Æmn{}¿Ş×æÚæÓ´Ê××Ø×è~àÕßÙ×œ¼ÒÑÛÄæã¯àÕßÙ×ŸrÅÑ˜|}YrÆãÕæ”{¦”€o{}³ÕÄéØÛÚ¹ÌÄêÎáâ¯ÏÌâÊ ×¼ØÖÛ›~YrÌäÉ×ì¯ÏÌâÊ ×¼ØÖÛ›~YrÌäÕçè¯ÍÄêÆåÙÄ—ÆâÔåÙx’m€n×àÃÎ€n{—s‰¦èÊÓèµ‰×ŞÊ’İ¾ÍÈî…Øİ¼ÎƒÜÔä”ÆÊÕßÆÔàµÜmnáéÄÙØêÄÖÕÄÊÖÛÙÑâ±ÖÈ–¢’İ¾ÙØêÄÖÕÄÊÖÛÙ çÀÕÌê”¢r’mnáéÄÙØêÄÖÕÄÊÖÛÙÑâ±ÖÈ–¢’ãÅİÓëÙÑØ±İÄéÊæÓ¾ÊĞÛÀ¢Ñ{‹ÂèÊØãÂÖÄêÊÖ¢³ÜÙ˜o{}¿Ş×æÚæÓ´Ê××Ø×èp¦ƒåÕ×âxØØêÕçè¯ÍÄêÆåÙÄÈÑ×Ò× p‹Ú˜|}YÒÑæÚæÓ´Ê××Ø×èp¦ƒåÕ×âxÒÑæÚæÓ´Ê××Ø×è|‰…è‡›~YrÌäÉ×ì¯ÏÌâÊ’±pØÓÛÓš–ÆÊÕßÆÔàµÈĞ×ÓÛÚµÜ×¤Èåêr•ƒ˜Ü”ZrlÙÑÓçÃÒÉßÈÓè¹ØÑÕËÛàµ‰ –ÔâÙ¾‘…åÇåÙÂßÄêÎáâÃÈÆâÆåç¹ÏÌÙÆæİ¿×‘ÙØè–|‰…í‡›~Zrl™ˆ’×¼ÊÖéÎØİ³Ê×ßÔà”ÆÊÕßÆÔàµÜmnÕà±ÜÖÕÙáÓ¹Íƒ³…íñZrlÙÑÓçÃÈÌÚ…¯”€smnÕáÀİƒ³…¢~YrÉå×’à¹×È–Îà”¹×ÓëÙÑØ±İÄéÊæ®ZrlÑÛâµ‰ –ÑÛâµ—ÕÛÕŞÕ³Î‹˜Áà–|‰…˜|~Yrl™ˆ’×ÂÎÄêÊ’âµàƒŞÊÓØµÛmn{—s‰ÆèÊÓèµ‰ÌäÉ×ìpÏÌâÊ|}YrÌÜÕáÀİƒ³¢¢Šsln{âµàÂŞÊÓØµÛƒ³…”–ZrlnŞİ¾ÎÂßÓÑÕÂÛÄï…¯”¼ÒÑÛ“åä¼Ò×‡–ysln{İ¾ÍÈî…¯”€sln{Ú¿ÛƒìÆäİ±ËÏÛ…ÛâpÕÌäÊÑİ¾ÈÄè×ÓíŠsln{}¹Ï‹ßÓÖÙÈ‰„³…Õà±ÜÖßËÛ×±İÌåÓÑê±ÛÌ×ÇŞÙ¯ÙÒéÎæİ¿×Œ°o{}YrlÓ×ë¯ßÄèÎÓÖ¼Îƒ³…”ê±ÛÌ×ÇŞÙ¯‹éÙäœ¹×ÇÛİ¥ysln{}Y×ÈíÄÚÙ±ÍÈè…±pÜ×èàÙÇÈÙ××ÛÕ²ÕÈŸ” rsln{}YÒÑÚÊêÓ¶ÒÏÛ“éæ¹İÈØææxßÄèÎÓÖ¼ÎŒ–” r‰éÙäœ¾ÎÚÕÛÓæ¹ÊÅâÊ›ŸrÅÑ˜|}YrlÎàØµáƒ¡¢’¥ZrlnàÙÇÈËÛÆÖÙÂ‰ –Ó×ë¯ÑÈ×É×æ«£§Â|}YrlåÚæäÅİÂÚÆæÕÃÎ×¤ÜäİÄÎ‹äÊéÓ¸ÎÄÚÊäŸrÅÑ˜|~Yrl™ˆ’Ú¹ÕÏ–ÔçèÀŞ×–ËÛàµsln•—pÌÕÛÆæÙpÌÏ×Øåİ¶ÒÆ×ÙÛã¾‰ÉßÑ×~YrlÛÑåÙŠsln{à¹×ÈÕÙáÓÇÛÌêÊ’±p‹…€n{}YÒÑÚÊê”‰“€n{}YÕÌäÊÑİ¾ÈÄè×Óíp¦ƒâÎàÙ~ÜÓâÎæœr•…Ÿo{}YrÉå×’ç³ÊÏ××’İ¾‰ÏßÓ×Ó¹×Â××äÕÉ£mn{}YÒÉÎàØµáƒ—¢’×¼ÊÖéÎØİ³Ê×ßÔàÓÆÊÕßÆÔàµÈÓåØÛè¹ØÑŸŸ|}YrlnŞİ¾ÎÂêÔÑëÂÒ×Û…±pÜ×èå×±ÕÄè’Ÿp‹˜o{}YrlÛÑåÙŠsmn{}Yr†™…ÓçÃØÆßÆæÙpÊÑ–ÎÖ”xÒÑêÊÙÙÂ’ƒêÔ’Ù±ÌË–ÈŞÕÃÜmn{}YrÌÜåèÂ‘ÖÙÆŞÕÂ’ƒäÔæ”¹×ƒÙÑÓçÃÈ×åÄÛØ~ÔÈïØšy£mn{}YrlÙÑÓçÃÈ×åÄÛØ«Ü×èå×±ÕÄèÏ”‰ÆâÆåç¯ÒÇ€n{}YrlÈŞÕÃÜÂßÉ’Ÿ‰”€o{}Yrlˆ•”ÇÛÌêÊ’İ¾‰ÆâÆåç¹ÏÌÙÆæİ¿×ƒÜÎŞÙZrln{}³ÕÄéØÛÚ¹ÌÄêÎáâ¯ÏÌâÊ ëÂÒ×ÛåèÂ‘ÆãÕæ”}šƒŸ…”r•…–’çÄÛ‹éÈÓà±ÛŒ¡…” r”ƒéÙäœ³ÕÄéØÑè¿ÈÌÚÀåèÂ‘ÖÙÆŞÕÂ’ÀŸ”Ğ¾‹Œ€o{}YrlßÓÖÙÈ‰³–|}YrlâÎàÙ¯İÒÕÜäİÄÎƒ³…Şİ¾ÎÂêÔÑëÂÒ×ÛÀ¬¡Æmn{}¿Ş×æÚæÓ´Ê××Ø×è~àÕßÙ×œ¼ÒÑÛÄæã¯àÕßÙ×ŸrÅÑ˜|}YrÆãÕæ”{¦”€o{}³ÕÄéØÛÚ¹ÌÄêÎáâ¯ÏÌâÊ ×¼ØÖÛ›~YrÌäÉ×ì¯ÏÌâÊ ×¼ØÖÛ›~YrÌäÕçè¯ÍÄêÆåÙÄ—ÆâÔåÙx’m€o|ØµÏƒèÊØãÂÖÄêÄâæµÍÌÙÙÛã¾ÈÇ×ÙÓçµİ‹ßÓâéÄÈÇ×ÙÓçµİŒ°o{—ssl™ˆ’¶±ÜÈÚ…áâpİËÛ…äÙ¶ØÕãÆæÓ¹×ÓëÙÑØ±İÄéÊæçpÏØäÈæİ¿×€n•—pÌÕÛÆæÙpÊƒ˜ÄäÙ¶ØÕãÆæÙ´‹ƒÜÎŞÙpÏÒè…âæµÍÌÙÙÛã¾‰Ç×ÙÓçµİ€n•—pÒ‘Û…àãpİÄèÌ×èpÌÒâÚßâpÎÛæÊÕèµÍƒßÓ’è¸ÎƒßÓâéÄ‰ÉßÑ× Zr†™…àãpÖÄäÎØÙÃİÂìÆäİ±ËÏÛ…Óâ´‰ÌäÉ×ìpÏÌâÊ’Ûµ×ÈèÆæÙ´sl™ˆ’İ¾‰×ŞÊ’äÂØÆÛØå~YŒ†€o{—s‰ÌãÕáæÄÊ×ßÔà~YÒĞæÔäèpÖÄêÍ|~YŒ†–Ì×èpİËÛ…àé½ËÈè…áÚpßÄèÎÓÖ¼ÎÖ€nàé½ËÈèÄáÚ¯ßÄèÎÓÖ¼ÎÖ–¢’¡slßÓâéÄÈÇ×ÙÓ”‰ÒæÊàœ¹×ÓëÙÑØ±İÄéÊæ p‹Õ˜|}³ÖÓê…¯”€slÜÔä”¼ÒÑÛ…ÛâpÒÑæÚæÓ´Ê××Ÿ|}YÒÉÈßäÄ‰ ³…¢ŠslnŞİ¾ÎÂßÓÑÕÂÛÄï…¯”¼ÒÑÛ“åä¼Ò×‡–yslnàé½ËÈèÄáÚ¯ßÄèÎÓÖ¼ÎÖ–¢’àµ×‹âÎàÙ¯ÒÑÕÆäæ±âŒ€n{×½Ù×–¯”slßÓâéÄÈÇ×ÙÓ¢³ÕÒéÊšZsl™ˆ’èµÜ×–ÎØ”ÇÎƒÙÆà”²ŞÌâÉ’ÕpÜÔëÆäÙpÖÄê×ÛìpàÌêÍ’è¸Ê×€næÙÃİÂìÆŞéµÈ”–¢’á±İË¤ØãæÄ‘ÑëÒÔÙÂÈÒÜÄèÕÂÒÄØÑ×çyslêÊåè¯ßÄâÚ×Ó‚‰ –ÎàèxİÈéÙÑê±ÕØÛÄ£ZrÒæÙÛá±ÕÂäÚßÖµÛÂåËÑê±ÛÌ×ÇŞÙÃ‰ –Óçá²ÎÕÕÔØÓÆÊÕßÆÔàµÜmÎØœ¶ÕÒ×ÙšèµÜ×ÕÛÓàÅÎÂ§…Ÿ”ÄÎÖêÄèÕ¼ŞÈÕ—›”‰“ŸŸ|~Yr†™…Øİ¾ÍƒäÊêèpÌÒåÑ’âÅÖÅÛ×’ã¶‰Ù××ÛÕ²ÕÈéo{}³ÊÑÕÉáÓÃØĞÛÙÚİ¾ĞÂíÎæÜ¯İËßØ’±p¯ÄâØ×~YrÚŞÎŞÙx×Òê…ÕÕ¾ÈÇåÄåã½Î×ŞÎàÛ¯àÌêÍÑè¸ÒÖŸŸ|~YrlêÊåè¯ßÄâÚ×Ó‰ –ÒÓè¸—Öç×æœ¿Ù×ßÒÓà¯×ØãÇ×æ¯ØÉÕÛÓæ¹ÊÅâÊåZrlÙ×çÄÈÙ×ÑçÙ¯›ƒ³…ÛâÄ‘×ÛØæÓÆÊÏëÊÑ¥yslnÛÚxÏÏåÆæœÄÎÖêÄèÕ¼ŞÈÕ–’¡pİÈéÙÑê±ÕØÛÄ¤p¦ –•›®ZrlnÕÕ¾ÈÇåÄåã½Î×ŞÎàÛ¯àÌêÍÑè¸ÒÖ–¢’ÈÂŞÈ€n{}µÕÖÛŸ|}YrlåÕæİ½ÊÏÕÓçá²ÎÕÕÔØÓÆÊÕßÆÔàµÜl¡¢’¥Zsmˆ•”“ÛÈ×Ù×”¿Ş×æÚæ”¶ÒÏÛo{ãÅİÓëÙÑØ±İÄéÊæÓ¾ÊĞÛ…¯”¹×ÓëÙÑØ±İÄéÊæ¢ÃÙÏßÙš–~‹Œ€náéÄÙØêÄÖÕÄÊÖÛÙÑâ±ÖÈ–¢’ãÅİÓëÙÑØ±İÄéÊæÓ¾ÊĞÛÀ¢Ñ{‹ÂèÊØãÂÖÄêÊÖ¢³ÜÙ˜o{ãÅİÓëÙÑØ±İÄéÊæ”‰ÒæÊàœ¿Ş×æÚæÓ´Ê××Ø×è¯×ÄãÊ”rà…Ÿo{İ¾ÙØêÄÖÕÄÊÖÛÙ’±pØÓÛÓšİ¾ÙØêÄÖÕÄÊÖÛÙ”rÛ…Ÿo|}³ÖÓê…¯”€smËáæpÕÌäÊ’İ¾‰ÌäÕçè¯ÍÄêÆåÙÄ£mnŞİ¾Îƒ³…Şİ¾Î‘èÊâà±ÌÈ‡Îâr•ƒ˜‡›~Zrl™ˆ’×ÂÎÄêÊ’âµàƒŞÊÓØµÛmn•—pÌÕÛÆæÙpÒÑÚÊê”¶ÒÏÛo{}¹Ï‹ÙÒâèp¦ ¦¬~YrläÊéÓ¸ÎÄÚÊä”‰…˜o{}YÕÌäÊÑİ¾ÈÄè×Óíp¦ƒâÎàÙ~ÜÓâÎæœr•…Ÿo{}YÒÑÚÊê”‰“€n{}¼ÊÖêÄäÙ±ÕÂìÆäİ±ËÏÛÄÛâ´ÎÛ–¢’¡slnØãÂ‰Ù××ÛÕ²ÕÈ–Îà”¼ÒÑÛÄÛâ¯ÊÕèÆë®ZrlnàÙÇÈÙ××ÛÕ²ÕÈ–¢’–ÆÊÕßÆÔàµÈ…¡ØææxÒÑÚÊêZrlnŞÕÃİÂèÊÓà¯ßÄèÎÓÖ¼ÎÂßÓÖÙÈ‰ –ÎàØµámn{}¾ÎÚÕÍ×Õ´ÎÕ–¯”ÃİÕÓ×ë¯ßÄèÎÓÖ¼ÎŒ¡‡–ZrlnÛâ´ÎÛ–¯”smn{—s‰ÄÚÉ’ØµÊÇ–ÛÓæ¹ÊÅâÊ’è¿‰ÉßÙ’ÕpÜÔëÆäÙpÖÄê×ÛìZrlÎàØµáƒ³…ŞÕÃİÂèÊÓà¯ßÄèÎÓÖ¼ÎÂßÓÖÙÈ‰––|}YrÉå×’ìpÒÑ–İäÕ¾ĞÈÔâè¹ÖÄâÄàé½ËÈèÄáÚ¯ßÄèÎÓÖ¼ÎÖ–’’âÅÖÅÛ×Ñã¶ÈÙ××ÛÕ²ÕÈé¬~Zrln•—pÍÈ×Ñ’ë¹İË–ÙÚÙpÒÑÚÊê”{¦ƒ§…Øæ¿ÖƒâÆåèpÕÒåÕ|}YrläÊéÓÆÊÕßÆÔàµ‰ –‡èÕÂÒÄØÑ×Ór”Öê×šİ¾ÍÈî|}YrläÊéÓ¸ÎÄÚÊä”{¦ƒéÙäœ¾ÎÚÕÛÓæ¹ÊÅâÊ›Ÿr•…€n{}YÒÑÚÊê”{¦ƒ§o|}Yr†™…Éæ¹İÈ–ÙÚÙpÏÌäÆŞ”¸ÎÄÚÊä~YrläÊéÓ¸ÎÄÚÊä”‰ÑÛÜÑÜµÊÇÛ×Í®}šÀ€n{}¿Ş×æÚæÓ´Ê××Ø×è~àÕßÙ×œ¾ÎÚÕÍ×Õ´ÎÕ¡‡Îâr’m€n{—s‰ÉßÑŞ”¿Ş×æÚæ”¶ÒÏÛo{}µÕÖÛŸ|}YrÏßÓ×ÓÄØÂí×Ûèµ‰ –‡”~YrlßÓÖÙÈ‰ –•|}YrÏßÓ×Ó¹×Â××äÕÉ‰ –ÑÛâµ—ÖæÑÛèx‹˜|}YrÉå×’ç³ÊÏ××’İ¾‰ÏßÓ×Ó¹×Â××äÕÉ£mn{}¼ÒÑÛÄæã¯àÕßÙ×”{¦ƒéÙäœÃÌÄâÆäp”ƒ˜‘”~YrlÎàØµáƒ¡¢£~Zrlˆ•”±ÍÇ–É×Õ´‰Ù××ÛÕ²ÕÈ–Ùá”¶Ò×–Æ’çÁŞÄèÊ’á±İÕßİ|}YrÉå×’ìpÒÑ–İäÕ¾ĞÈÔâè¹ÖÄâÄàé½ËÈèÄáÚ¯ßÄèÎÓÖ¼ÎÖ–’’âÅÖÅÛ×Ñã¶ÈÙ××ÛÕ²ÕÈé¬~YrlÑÛâµÈ×åÄéæ¹İÈ–¯”ÃİÕ•›Ÿr•…€o{}YÕÌäÊÑè¿ÈÚèÎæÙp¦ƒâÎàÙ¯İÒÕÜäİÄÎ¾°’£ÑZrlÔçèÀŞ×ÕÉÓè±ÜÈê“éæ¹İÈÑÛâµÈ×åÄéæ¹İÈ¡‡Îâr’mnÕáÀİƒ¡¢£~ZrÒëÙâéÄÈÇ×ÙÓçµİ‘ÙÑáçµ‘Œ€nÛâÀŞ×ÕÉÓè±ÜÈê“Õà¿ÜÈ|~ZsÇÛË’ÛµİÂäÚßÖµÛÂåËÑ×¿ÕØãÓåÓ¹×ÂÙØèÓ¶ÒÏÛÕçÆÈÉßÑ×Šsl˜‡”~YÛÈêÚäâpİËÛ…àé½ËÈè…áÚpÌÒâo{İ¾‰Ä–ÈåêpÏÌâÊ|}r‹…€nàÖ¯ÌÒâ…¯”r·¤˜o{Ø±İÄÕËÛàµ‰ –ÔâÙ¾‘ÆéÛÑÚ¹ÕÈ¢…”ær’mËáæpÕÌäÊ’İ¾‰Ç×ÙÓÓ¶ÒÏÛŸ|}YÕÌäÊ’±pÕÌäÊ æÃİÕßÕšZrlâÎàÙ¯ÒÑÕÆäæ±âƒ³…Şİ¾Î‘éÕŞİÄ‘…¢‡›~YrÑØÄÕã¼‰ –Ñ×âxÕÌäÊÑİ¾ÈÄè×ÓíyslÚÆæÕ¯ÏÌâÊ ×¼ØÖÛ›~ZrÕÛÙçæ¾‰ÑØÄÕã¼s
+##----------------------##
+## Preprocessing module ##
+##----------------------##
+## pre process data file & generate random data
+## for DPIX.
+##
+## MANIFEST:
+##		-> generate_random_data
+##		-> normalize_data
+##		-> overclock_dataset
+##		-> reformat_input_datasets
+##		-> reformat_input_datasets
+##		-> get_number_of_columns_in_csv_file
+##
+##
+
+
+def normalize_data(data_file):
+	##
+	## -> Scale (centrer normer) the data
+	## and write the data in new _scaled data
+	## file
+	##
+
+	## importation
+	from numpy import genfromtxt
+	from sklearn import preprocessing
+
+	## Get the header
+	cmpt = 0
+	header = ""
+	input_data = open(data_file, "r")
+	for line in input_data:
+		line = line.replace("\n", "")
+		if(cmpt == 0):
+			header = line
+		cmpt += 1
+	input_data.close()
+
+	## Get and scale data
+	data = genfromtxt(data_file, delimiter=',')
+	data_scaled = preprocessing.scale(data[1:])
+
+	## Write new file
+	output_file_name = data_file.split(".")
+	output_file_name = output_file_name[0]+"_scaled.csv"
+
+	output_data = open(output_file_name, "w")
+	output_data.write(header+"\n")
+
+	for vector in data_scaled:
+		vector_to_write = ""
+		for scalar in vector:
+			vector_to_write += str(scalar)+","
+		vector_to_write = vector_to_write[:-1]
+		output_data.write(vector_to_write+"\n")
+	output_data.close()
+
+
+
+def overclock_dataset(input_dataset, classification_variable_position, increase_factor):
+	"""
+	IN PROGRESS
+
+	Repeat n time (given by increase_factor) each variable in the dataset, use to create
+	big images to process.
+	"""
+
+	## importation
+	import pandas as pd
+
+	## parameters
+	output_file_name = input_dataset.split(".")
+	output_file_name = output_file_name[0]+"_overclocked.csv"
+
+	## read data, identify label variable
+	dataset = pd.read_csv(input_dataset)
+	class_label = dataset.keys()[classification_variable_position]
+	class_data = dataset[class_label]
+
+	## remove label variable
+	dataset = dataset.drop(columns=[class_label])
+	original_labels = dataset.keys()
+
+	## increase dataset size
+	for x in xrange(1,increase_factor):
+		for label in original_labels:
+			dataset[str(label)+"_clone_"+str(x)] = dataset[label]
+		print "[+] Overclocking : "+str((float(x)/float(increase_factor))*100.0)+"% Completed"
+	print "[+] Overclocking : "+str(100.0)+"% Completed"
+
+	## re-add label to the dataset
+	dataset[class_label] = class_data
+
+	## save dataset in a file
+	dataset.to_csv(output_file_name, index=False)
+
+
+def reformat_input_datasets(input_dataset, classification_variable_position, force_square_matrix):
+	##
+	## IN TEST PHASE
+	##
+	## Reformat the input_dataset to be processed ny the PATREP functions
+	## classification_variable_position is an integer, the position of
+	## the classification variable in the header.
+	##
+	## force_square_matrix is a boolean, add "dead variables" to get
+	## a square matrix in the end.
+	##
+	## Produce a manifest file to map the variables to their number
+	## Produce a classification file to map the observations to teir class
+	##
+	## WARNING => Seems to bug when classification variable is in position 0
+	##
+
+	## importation
+	import math
+
+	if(force_square_matrix):
+
+		## get the number of variables
+		number_of_variables = -1
+		input_data = open(input_dataset, "r")
+		cmpt = 0
+		for line in input_data:
+			if(cmpt == 0):
+				line_in_array = line.split(",")
+				number_of_variables = len(line_in_array)-1
+			cmpt += 1
+		input_data.close()
+
+		## test if we can build a square matrix with that
+		test_value_1 = math.sqrt(number_of_variables)
+		test_value_2 = int(test_value_1)
+		optimal_number_of_variables = number_of_variables
+		print "[DEBUG] => original number of variables : "+str(optimal_number_of_variables)
+		if(float(test_value_1 - test_value_2) > 0):
+
+			print "[DEBUG] => adapt number of variables"
+
+			## find next cool number of variables
+			can_do_something_with_this = False
+			while(not can_do_something_with_this):
+
+				test_value_1 = math.sqrt(optimal_number_of_variables)
+				test_value_2 = int(test_value_1)
+				if(float(test_value_1 - test_value_2) == 0):
+					can_do_something_with_this = True
+				else:
+					optimal_number_of_variables	+= 1
+
+		print "[DEBUG] => optimal number of variables : "+str(optimal_number_of_variables)
+
+		## Create the index file for variables
+		output_dataset_name = input_dataset.split(".")
+		output_dataset_name = output_dataset_name[0]+"_reformated.csv"
+		output_dataset = open(output_dataset_name, "w")
+		input_dataset = open(input_dataset, "r")
+		index_file = open("variable_manifest.csv", "w")
+		classification_file = open("observations_classification.csv", "w")
+		cmpt = 0
+
+		## classification variables
+		class_to_id = {}
+		class_id = 0
+
+		for line in input_dataset:
+			line = line.replace("\n", "")
+
+			## create new header
+			## create index file
+			if(cmpt ==0):
+				new_header = ""
+				line_in_array = line.split(",")
+				index = 0
+				last_real_variable_index = -1
+				for variable in line_in_array:
+					if(index != classification_variable_position):
+						new_variable = "variable_"+str(index)
+						last_real_variable_index = index
+						new_header += str(new_variable)+","
+						index_file.write(str(variable) +"," +str(new_variable)+"\n")
+					index += 1
+
+				## add dead variable to fit a square matrix
+				index = last_real_variable_index + 1
+				for x in xrange(optimal_number_of_variables - number_of_variables):
+
+					## deal with the index += 1 from last loop
+					new_variable = "variable_"+str(index)
+					new_header += str(new_variable)+","
+					index_file.write(str(variable) +"," +str(new_variable)+"\n")
+					index += 1
+
+				## Write the final header
+				new_header = new_header[:-1]
+				output_dataset.write(new_header+"\n")
+
+			## fill output file
+			## create classification file
+			else:
+				line_to_write = ""
+				index = 0
+				line_in_array = line.split(",")
+				for scalar in line_in_array:
+					if(index != classification_variable_position):
+						line_to_write += str(scalar) + ","
+					else:
+
+						## associate an id (integer) to each class
+						if(str(scalar) not in class_to_id.keys()):
+							class_to_id[str(scalar)] = class_id
+							class_id += 1
+
+						## write in classification file
+						classification_file.write(str(cmpt -1 ) + "," + str(scalar)+ ","+ str(class_to_id[str(scalar)])+"\n")
+					index +=1
+
+				## add dead variable to fit a square matrix
+				for x in xrange(optimal_number_of_variables - number_of_variables):
+					line_to_write += str(0)+","
+
+				line_to_write = line_to_write[:-1]
+				output_dataset.write(line_to_write+"\n")
+			cmpt +=1
+
+		classification_file.close()
+		index_file.close()
+		input_dataset.close()
+
+	else:
+		## Create the index file for variables
+		output_dataset_name = input_dataset.split(".")
+		output_dataset_name = output_dataset_name[0]+"_reformated.csv"
+		output_dataset = open(output_dataset_name, "w")
+		input_dataset = open(input_dataset, "r")
+		index_file = open("variable_manifest.csv", "w")
+		classification_file = open("observations_classification.csv", "w")
+
+		## classification variables
+		class_to_id = {}
+		class_id = 0
+
+		cmpt = 0
+		for line in input_dataset:
+			line = line.replace("\n", "")
+
+			## create new header
+			## create index file
+			if(cmpt ==0):
+				new_header = ""
+				line_in_array = line.split(",")
+				index = 0
+				for variable in line_in_array:
+					if(index != classification_variable_position):
+						new_variable = "variable_"+str(index+1)
+						new_header += str(new_variable)+","
+						index_file.write(str(variable) +"," +str(new_variable)+"\n")
+					index += 1
+				new_header = new_header[:-1]
+				output_dataset.write(new_header+"\n")
+
+			## fill output file
+			## create classification file
+			else:
+				line_to_write = ""
+				index = 0
+				line_in_array = line.split(",")
+				for scalar in line_in_array:
+					if(index != classification_variable_position):
+						line_to_write += str(scalar) + ","
+					else:
+
+						## associate an id (integer) to each class
+						if(str(scalar) not in class_to_id.keys()):
+							class_to_id[str(scalar)] = class_id
+							class_id += 1
+
+						## write in classification file
+						classification_file.write(str(cmpt -1 ) + "," + str(scalar)+ ","+ str(class_to_id[str(scalar)])+"\n")
+
+					index +=1
+				line_to_write = line_to_write[:-1]
+				output_dataset.write(line_to_write+"\n")
+			cmpt +=1
+
+		classification_file.close()
+		index_file.close()
+		input_dataset.close()
+
+
+
+def reformat_prediction_dataset(input_dataset):
+	##
+	## Based on the reformat_input_datasets function,
+	## create a "_reformated" file for prediction dataset,
+	## i.e no target column expected in the input file,
+	## no manifest_variable and index file generated
+	## in the process
+	##
+
+	## importation
+	import math
+
+	## get the number of variables
+	number_of_variables = -1
+	input_data = open(input_dataset, "r")
+	cmpt = 0
+	for line in input_data:
+		if(cmpt == 0):
+			line_in_array = line.split(",")
+			number_of_variables = len(line_in_array)
+		cmpt += 1
+	input_data.close()
+
+	## test if we can build a square matrix with that
+	test_value_1 = math.sqrt(number_of_variables)
+	test_value_2 = int(test_value_1)
+	optimal_number_of_variables = number_of_variables
+	if(float(test_value_1 - test_value_2) > 0):
+
+		## find next cool number of variables
+		can_do_something_with_this = False
+		while(not can_do_something_with_this):
+
+			test_value_1 = math.sqrt(optimal_number_of_variables)
+			test_value_2 = int(test_value_1)
+			if(float(test_value_1 - test_value_2) == 0):
+				can_do_something_with_this = True
+			else:
+				optimal_number_of_variables	+= 1
+
+
+	## Create output file
+	output_dataset_name = input_dataset.split(".")
+	output_dataset_name = output_dataset_name[0]+"_reformated.csv"
+	output_dataset = open(output_dataset_name, "w")
+	input_dataset = open(input_dataset, "r")
+
+	cmpt = 0
+
+	for line in input_dataset:
+		line = line.replace("\n", "")
+
+		## create new header
+		## create index file
+		if(cmpt ==0):
+			new_header = ""
+			line_in_array = line.split(",")
+			index = 0
+			last_real_variable_index = -1
+			for variable in line_in_array:
+				new_variable = "variable_"+str(index)
+				last_real_variable_index = index
+				new_header += str(new_variable)+","
+				index += 1
+
+			## add dead variable to fit a square matrix
+			index = last_real_variable_index + 1
+			for x in xrange(optimal_number_of_variables - number_of_variables):
+
+				## deal with the index += 1 from last loop
+				new_variable = "variable_"+str(index)
+				new_header += str(new_variable)+","
+				index += 1
+
+			## Write the final header
+			new_header = new_header[:-1]
+			output_dataset.write(new_header+"\n")
+
+		## fill output file
+		else:
+			line_to_write = ""
+			index = 0
+			line_in_array = line.split(",")
+			for scalar in line_in_array:
+				line_to_write += str(scalar) + ","
+				index +=1
+
+			## add dead variable to fit a square matrix
+			for x in xrange(optimal_number_of_variables - number_of_variables):
+				line_to_write += str(0)+","
+
+			line_to_write = line_to_write[:-1]
+			output_dataset.write(line_to_write+"\n")
+		cmpt +=1
+
+	output_dataset.close()
+	input_dataset.close()
+
+
+
+def get_number_of_columns_in_csv_file(csv_file):
+	"""
+	return the number of col
+	in a csv file
+	"""
+	nb_col = "NA"
+	data_file = open(csv_file, "r")
+	for line in data_file:
+		line = line.rstrip()
+		line_in_array = line.split(",")
+		nb_col = len(line_in_array)
+	data_file.close()
+
+	return nb_col

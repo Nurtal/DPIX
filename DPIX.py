@@ -1,1 +1,252 @@
-¹ÖÓå×æ”½Ê×æÑáè¼ÒÅ€ÒÓèÀÕÒêÑÛÖ~ŞÖÛ™È»ªÊİŒ›~¹ÖÓå×æ”¿ÜmßÒâãÂİƒİÊæãÀİmßÒâãÂİƒéŞå~ZsÌãÕáæÄ‰ÕÛÕäÙÃÎÑêÆæİ¿×mßÒâãÂİƒæ××äÂØÆÛØåİ¾ĞmßÒâãÂİƒÙÑÓçÃÒÉßÈÓè¹ØÑ€Îßä¿Û×–ÒÓâ±ĞÈèo|~´ÎÉ–ÒÓİ¾‘ÄèÌèŠsl™ˆ|}sŒƒ¿³’Ä¢¸ªÈªÅÇZr†™o{—s‰·Å©Á”Š‰ÚèÎæÙpÑÈâÕ|}sŒmˆ•~Zsl×Èæİ¿×ƒ³…”Â‘‹m€o{èÂâ€n{ãÀİÖ¢…Óæ·Üƒ³…ÙÙÄØÓê“ÙÙÄØÓêÓæ·ß˜ÍÓ®r•¾˜ÆÕè¹ØÑ³‡ÏZslÛİÕÙÀİƒİÊæãÀİ‘½ÊæãÀİ¨è×áæŠslØëç~ÎÛßÙš¦ysmËáæpØÓê‘’ÕÂĞƒßÓ’ãÀİÖ°o|}YŒ†–©ÛçÀÕÄï…ºÙ¼ÙmnÛÚpØÓê…¯±pŞŒ¬~Yrlæ×ÛâÄ‰…ÙÍáé³ÛÒëÙ×–ZrlØëç~ÎÛßÙšZslˆ•”—Î×–ÆÕè¹ØÑ€n{Ù¼ÒÉ–ÔâèpÒÑ–”¡±‹–‡Ÿ¡±Ì×ßÔà–y£mn{Õ³İÌåÓ’±pÊÕİo|}¹Ï‹×Èæİ¿×ƒ³¢’–µáÈãÕŞÙr’€o{}sŒƒêÊåèZrl™ˆ’ÄÂÎÓ×××”ÄØƒæ××Ø¹Ì×–ÉÓè±‰–ÌÛêµ‰Ää…×áÀİÜ–Æäæ±âmnâæµÍÌÙÙÛã¾ÈÇ×ÙÓçµİƒ³…ÍÑZslˆ•”’ŞÌâÉ’İ½ÊÊÛ…ßÕÀ‰ÄäÉ’ç±ßÈ–Îæ~YrÓèÊâæ¿ÌÈéØÛâ·—ÕÛËáæ½Ê×ÕÎàäÅİÂÚÆæÕÃÎ×é”Ø±İÄéÊæçÌÕÛÉÛè³ÊÕÚÄäÙ´ŞÆÛ“ÕçÆ‹–˜¢ p½ÕëÊ›~YrÓèÊâæ¿ÌÈéØÛâ·—Ñå×ßÕ¼ÒİÛÄÖÕÄÊ‹˜ÉÓè±ÜÈêØ¡×ÂÎÇßÙÕÕÂÍÂèÊÖé³ÎÂèÊØãÂÖÄêÊÖ¢³ÜÙ˜|}YÒĞ×Ì×ÓÃİÕëÈæéÂÎƒ³…äÙÀÛÈéÊàè±İÌåÓ ÖÅÒÏÚÄÛá±ĞÈÕÒÓä¯°°·”Ø±İÄéÊæçÌÕÛÉÛè³ÊÕÚÄäÙ´ŞÆÛÄäÙ¶ØÕãÆæÙ´ÈÖÙÆŞÙ´—ÆéÛ” pš“¦|}YÖÄäÆÙÙÂ—Ö×Û×Ó½Ê×èÎêÓÄØÂÜÎŞÙxÒĞ×Ì×ÓÃİÕëÈæéÂÎ–‡ÖÕÄÊÖÛÙå£³ÛÈÚÎæÓ¹ÖÄİÊÑçÄÛØÙÙçæµ—ÆéÛ”Zslˆ•”ÀÛÈæÆäÙpİÕ×Îà”´Ê××o{}ÂÎÓèÊåÙ¾İÄêÎáâ~ÜÌãÕŞÙ¯ÌÒäÛ×æÃÒÒäÄæã¯ÒĞİÄßÕÄÛÌî”Ø±İÄéÊæçÌÕÛÉÛè³ÊÕÚÄäÙ´ŞÆÛÄäÙ¶ØÕãÆæÙ´ÈÖÙÆŞÙ´—ÆéÛ”ZrlèÊâæµÜÈäÙÓè¹ØÑ¤Ççİ¼ÍÂæÆæİµ××Õ××äÂÎÖÛÓæÕÄÒÒä”Ø±İÄéÊæçÌÕÛÉÛè³ÊÕÚÄäÙ´ŞÆÛÄäÙ¶ØÕãÆæÙ´ÈÖÙÆŞÙ´ÈÌäÙ×æÀØÏ×Ù×Ø~ÌÖì‡”¹ÖÄİÊÑçÄÛØÙÙçæµ’mnäÙ±ÕÂÚÆæÕp¦ƒèÊâæµÜÈäÙÓè¹ØÑ¤Ççİ¼ÍÂæÆæİµ××ÕÒÓèÂÒÛ‡ÖÕÄÊÖÛÙå£³ÛÈÚÎæ×±ÛÇÕ××ØÅÌÈÕ××Ú¿ÛĞ×Ù×Ø¯ÜÆ×Ñ×Ø¯ÒÑêÊää¿ÕÄêÊÖ¢³ÜÙ˜‘’İ½ÊÊÛÄåèÂŞÆêÚäÙyslææ±ÒÑÕ½”ÄÛÄßÓÑÍy•ƒÙ×çÄÈ»¢…æÙÃİÂÏ’±pÌÏ×Øåİ¶ÒÆ×ÙÛã¾—ÈîÙäÕ³İÂÚÆæÕ¯ÏÒèÄÕâ¾‘ÕÛÆŞÓ´Ê××‘’¤~ •Ÿo|}YŒ†–·çâp¬±Äo{}³ÕÄéØÛÚ¹ÌÄêÎáâ~ÛØäÄµÂ‘×èÆÛâ¯Á–ÙäÕ¹×ÂÏ‘’èµÜ×Õ½”ÄÎÖêÄË p›“¢…âæµÍÌÙÙÛã¾ÈÇ×ÙÓçµİŒ€o{}sŒƒí×Ûèµ‰ÕÛÕáæÄslÒÓâ±ĞÈè“éæ¹İÈÕ××ä¿Û×|~YÎÏßËšÕ³İÌåÓ’±‰…êÊåèr’€n{äÂÒÑê…”¹¾İÈè…æÜµ‰·ÛØæ”‘ÛÈ×‡|~YrÓèÎàèp‹¾ÊªÅÈ­‰²ìÊä×¼ØÆáÊÖ”¶ÒÏÛØ”~YrÓèÊÖİ³İÌåÓÑØ±İÄéÊæ”‰¾Óo{}¹ÖÄİÊÑçÄÛØÙÙçæµ‰ –ÒÓâ±ĞÈè“Şã±ÍÂãÆææ¹áÂÜ×áá¯ÏÌâÊš–´Ê××Ø×èÃ˜ÆèÊÖİÄÌÄèÉÑæµÍØÙÊÑãÆÎÕÙÑá×»ÎÇÕ××Ú¿ÛĞ×Ù×Ø¯ÜÆ×Ñ×Ø¯ÜÄìÊÖÓ½Ê×èÎê¢³ÜÙ˜|}YÛÈæ××çµ×××ÙÛã¾—ÖßÒâàµÈÆåÓèÙÂÜÌåÓÑè¿ÈÌãÌÑá±İÕßİš–´Ê××Ø×èÃ˜ÆèÊÖİÄÌÄèÉÑæµÍØÙÊÑãÆÎÕÙÑá×»ÎÇÕ××Ú¿ÛĞ×Ù×Ø¯ÜÆ×Ñ×Ø~ÌÖì‡›~YrÕÛÕäÙÃÎÑêÆæİ¿×‘ØÚÛà´ÈÓ×ÙÛÙ¾İÂèÊâæµÜÈäÙÓè¹ØÑ‡ÖÕÄÊÖÛÙå£³ÛÈÚÎæ×±ÛÇÕ××ØÅÌÈÕÔèÙÂÌÏåÈİÙ´ÈÕÛËáæ½Ê×ÛÉÑç³ÊÏÛÉÑİ¾İÈèÕáà±İÈÚ“ÕçÆ‹–ÎßÕ·ÎÂéÙäé³İØèÊ›~YrÕÛÆŞÓ´Ê××…¯”ÂÎÓèÊåÙ¾İÄêÎáâ~ËØßÑÖÓÀÊ×ßÊàè¯ÖÄê×Ûìx‹Ç×ÙÓçµİÖ¥ÈäÙ´Ò×ÙÆäØ¯ÛÈÚÚÕÙ¯ØÙÛ×Õà¿ÌÎÛÉÑæµÏÒèÒÓèµÍÂéÈÓàµÍÂßÓæÙÂÙÒâÆæÙ´—ÆéÛ” pÒĞ×Ì×ÓÃİÕëÈæéÂÎŒ€n{œÄÛÄßÓÑÌ|‰×èÆÛâ¯ÂŒ¢…šèµÜ×Õ½”ÄÎÖêÄËp¦ƒÙÑÓçÃÒÉßÈÓè¹ØÑ¤ÊêèÂÊÆêÄÖÕÄÊÂÜÔäÓ³×Ñ××Õ¼ÈÇ×ÙÓ p™‘­—›~YrÆâÆåç¹ÏÌÙÆæİ¿×‘èÚàÓ“·±ÙäÕ¹×ÂÎ‘’èÂÊÌäÄË pİÈéÙÑÌ|‰×ÛØæÓ©•ƒ¨•”ÀÛÈÚÎÕè¹ØÑÕÉÓè±ÜÈê|~ZslÛÑÛÚxÊÆêÎáâp¦ –‡äéÃÑ…ŸŸ|~Yr†™…ÂæµÙÄèÊ’è¿‰ÓèÊÖİ³İƒÚÆæÕp–ƒİÎèÙpÊÑ–ÊßäÄâƒ××äÕÉslÕäÙ´ÒÆêÎáâ¯ÍÄêÆåÙÄ‰ –ÀÏ~Zrl™ˆ’¶ÅÒÏÚ…Ûá±ĞÈ–ÒÓäpÊÑÚ…åÕÆÎƒßÙ|}YÙÕÛÕäã³ÎÖéÎàÛ~ÛÈÜÔäá±İÂßÓâéÄÈÇ×ÙÓçµİÖ‡ÖÕÄÊÖÛÙå£Â×ÄéÊãÓ´Ê××“ÕçÆ‹–•”¤ÛØÛ|}YÙÕÛÕäã³ÎÖéÎàÛ~×ÒèÒÓà¹ãÈÕÉÓè±‘…ÚÆæÕÃÎ×é”äâ±ÜÈçÄÖÕÄÊÂèÊØãÂÖÄêÊÖ¢³ÜÙ˜|}YÒĞ×Ì×ÓÃİÕëÈæéÂÎƒ³…äÙÀÛÈéÊàè±İÌåÓ ÖÅÒÏÚÄÛá±ĞÈÕÒÓä¯°°·”Ø±İÄéÊæçÛÑ×Ø×å¯ÍÄêÆÑæµÏÒèÒÓèµÍÂéÈÓàµÍ‘ÙØè–|‰”¦•›~YrĞ×ÓÓÛµÛ‘éÆèÙ¯ÖÄê×Ûì¯İÒÕËÛàµ‘ÌãÆÙÙ¯Ü×èÚÕèÅÛÈ¢…”Ø±İÄéÊæçÛÑ×Ø×å¯ÒĞ×Ì×ÓÃİÕëÈæéÂÎ‘ÙØè–ysmn•—pÙÕÛÕÓæµ‰×èÆÛâpÍÄêÆ|}YÛÈæ××çµ×××ÙÛã¾—ÖßÒâàµÈÆåÓèÙÂÜÌåÓÑè¿ÈÌãÌÑá±İÕßİš–´Ê××Ø×èÃ˜ÕäÆåÙÁÈÕÛËáæ½Ê×ÛÉÑç³ÊÏÛÉ ×Ãß…Ÿo{}ÂÎÓèÊåÙ¾İÄêÎáâ~ËØßÑÖÓÀÊ×ßÊàè¯ÛÈæ××çµ×××ÙÛã¾‘…ÚÆæÕÃÎ×é”äâ±ÜÈçÄäÙ¶ØÕãÆæÙ´ÈÖÙÆŞÙ´ÈÌäÙ×æÀØÏ×Ù×Ø~ÌÖì‡”¹ÖÄİÊÑçÄÛØÙÙçæµ’mnäÙ±ÕÂÚÆæÕp¦ƒèÊâæµÜÈäÙÓè¹ØÑ¤Ççİ¼ÍÂæÆæİµ××ÕÒÓèÂÒÛ‡ÖÕÄÊÖÛÙå£Â×ÄéÊãÓÂÎÉå×ßÕÄÎÇÕØÕÕ¼ÎÇÕÎàèµÛÓåÑÓèµÍ‘ÙØè–|‰ÌãÆÙÙ¯Ü×èÚÕèÅÛÈŸo{}xİÕ×ÎàÓ¨•ƒê×Óİ¾È¼Ÿ‘’œÄÎÖêÄÊ pİÈéÙÑÍy‰ –ÈŞÕÃÜÌÜÎÕÕÄÒÒä“×ìÄÛÄÙÙÑØ±İÄÕËáæ¯ÌÑääÙ±ÕÂÚÆæÕ|‰“¤œ¤Zslˆ•”¢ŞÑ–¨ÀÂZrlÙÑÓçÃÒÉßÈÓè¹ØÑ¤×çâ¯¬±Äææ±ÒÑÕ½”ÄÛÄßÓÑÍ|‰×ÛØæÓ¨•ƒêÊåè¯Â–š¢ pÙÕÛÉÛ×ÄÒÒäÄÖÕÄÊÖÛÙ›~Zrl™ˆ’ëÂÒ×Û…äÙÀØÕêo{}½ÊÑ×Ì×æ~àÕßÙ×ÓÂÎÓå×æœysmÊŞİ¶‘ÄÙÙÛã¾‰ ³…”¼œª…ŸŸ|~Zrl™ˆ’äÂÎéÊæ”¶ØÕ–­¾µpÍÄêÆ|~Yr†™…ÂæµÙÄèÊ’è¿‰ÓèÊÖİ³İƒÚÆæÕp–ƒİÎèÙpÊÑ–ÊßäÄâƒ××äÕÉslÕäÙ´ÒÆêÎáâ¯ÍÄêÆåÙÄ‰ –ÀÏ~Zrlæ××äÂØÆÛØåİ¾Ğ‘èÊØãÂÖÄêÄÛâÀŞ×ÕÉÓè±ÜÈêØš–´Ê××Ø×èÃ˜«Â¦ÑØ±İÄÕÈŞÙ±×‘ÙØè–|‰˜¬—”¤ÛØÛ|}YÙÕÛÕäã³ÎÖéÎàÛ~×ÒèÒÓà¹ãÈÕÉÓè±‘…ÚÆæÕÃÎ×é”ºÀ‘ÈÇ×ÙÓÓ³ÕÈ×ÓÑæµÏÒèÒÓèµÍ‘ÙØè–yslÎßÕ·ÎÂéÙäé³İØèÊ’±pÛÈæ××çµ×××ÙÛã¾—ÅëÎŞØ¯ÒĞ×Ì×Ó½ÊÓÕ¬¿µx‹Ç×ÙÓçµİÖ¥­¾µ¯ÍÄêÆÑ×¼ÎÄäÄäÙ¶ØÕãÆæÙ´ÈÖÙÆŞÙ´—ÆéÛ” pš“¦|}YÖÄäÆÙÙÂ—Ö×Û×Ó½Ê×èÎêÓÄØÂÜÎŞÙxÒĞ×Ì×ÓÃİÕëÈæéÂÎ–‡ºÀ‘ÈÌãÆÙÙ¯Ü×èÚÕèÅÛÈÕ–¢¤¹—ÆéÛ”Zslˆ•”ÀÛÈæÆäÙpİÕ×Îà”´Ê××o{}ÂÎÓèÊåÙ¾İÄêÎáâ~ÜÌãÕŞÙ¯ÌÒäÛ×æÃÒÒäÄæã¯ÒĞİÄßÕÄÛÌî”Ø±İÄéÊæç˜«Â¦ÑØ±İÄÕÈŞÙ±×ÂèÊØãÂÖÄêÊÖÓÃÌÄâÊÖ¢³ÜÙ˜|}YÛÈæ××çµ×××ÙÛã¾—ÅëÎŞØ¯ÙÄêÎ×âÄÈÕÛÕäÙÃÎÑêÆæİ¿×‹˜ÉÓè±ÜÈêØ¡£˜µ¤ÕÉÓè±ÈÆâÊÓâ¯ÛÈÜÔäá±İÈÚÄå×±ÕÈÚÄÛâÄÎÕæÔŞÕÄÎÇ¤Èåêr•ƒßÒÓÛµÈÖê×ç×ÄŞÕÛ|}YÛÈ×ÑÑØ±İÄ–¢’æµÙÕÛØ×âÄÊ×ßÔà¢²ŞÌâÉÑä±İÌÛÓæÓ½Ê×èÎêœrÍÄêÆåÙÄÜ’¥­¾µ¯ÍÄêÆÑ×¼ÎÄäÄäÙ¶ØÕãÆæÙ´ÈÖÙÆŞÙ´ÈÌäÙ×æÀØÏ×Ù×Ø~ÌÖì‡”¹ÖÄİÊÑçÄÛØÙÙçæµ’mnšèÂÊÌäÄÊ pİÕ×ÎàÓ©’–æÙÃİÂÎ‘’èµÜ×Õ¾›”‰ÆâÆåç¹ÏÌÙÆæİ¿×‘Ûİææ±Ì×ÕÉÓè±ÈÉå×Ñ×¾×‹èÊÓà¯ÍÄêÆ”€—š¨|~Yr†™…Äé¾‰¦Ä³|}YÌÏ×Øåİ¶ÒÆ×ÙÛã¾—ÕëÓÑ··‹ê×Óİ¾È»¢…ææ±ÒÑÕ¾”ÄÎÖêÄÊ pİÈéÙÑÍ|‰•¦‘’äÂÎÇßÈæİ¿×ÂÚÆæÕÃÎ×Ÿo|~YÎÏßËšÕ³İÌåÓ’±‰…èÚà–y£m€n{}sŒƒèÚà”ÃØÏìÊä”¿×ƒêÍ×”ÄÊÕİÊæ”¶ÒÏÛo{}YŒ†–®À” »²½··Ç£smn{—s‰³èÊâÕÂÎƒêÔ’äÂÎÇßÈæ”´Ê××…Ÿ”·ÒÙÛ…ÓâpÎĞæÙë”±ÛÕ×Ş|}YrÓèÊÖİ³İÌåÓÑØ±İÄéÊæ”‰¾Óo|}Yr†™…ÖÙ±ÕƒíÎæÜpÏÌâÊ’â±ÖÈéo{}YİÄèÌ×è¯ÏÌâÊ’±pÊÕİÛÍ¦­slnäÙ¶ØÕãÆæÙ´ÈÇ×ÙÓÓ¶ÒÏÛÄàÕ½Îƒ³…æÕÂĞÈêÄØİ¼Î‘éÕŞİÄ‘…¤‡›~YrlèÊØãÂÖÄêÊÖÓ´Ê××ÄØİ¼ÎÂäÆßÙp¦ƒèÊØãÂÖÄêÊÖÓ´Ê××ÄØİ¼ÎÂäÆßÙ«™À¡‡ÑæµÏÒèÒÓèµÍ‘ÙØè–ZrlØÕÕ¼ÎÇÕÉÓè±ÈÉßÑ×Ó¾ÊĞÛ…¯”ÂÎÉå×ßÕÄÎÇÕÉÓè±ÈÉßÑ×Ó¾ÊĞÛ“åä¼Ò×‡ –yslnå×±ÕÈÚÄÖÕÄÊÂÜÎŞÙ¯×ÄãÊ’±pÜÆ×Ñ×Ø¯ÍÄêÆÑÚ¹ÕÈÕÓÓáµÄ“Ó”ÓÃÌÄâÊÖ¢³ÜÙ˜o{}YÖÄê×Ûì¯ÜÄìÊÑÚ¹ÕÈÕÓÓáµ‰ –ØÕÕ¼ÎÇÕÉÓè±ÈÉßÑ×Ó¾ÊĞÛ“åä¼Ò×‡ –yslnßÕÄÛÌîÄåÕÆÎÂÜÎŞÙ¯×ÄãÊ’±pÖÄê×Ûì¯ÜÄìÊÑÚ¹ÕÈÕÓÓáµÄ“Ó”ÓÃÊÙÛÉÑá±İÕßİ ×Ãß…€n{}¹××Û×âã¼Ê×ÛÉÑØ±İÄÕËÛàµÈÑ×Ò×”‰ÖÙÆŞÙ´ÈÇ×ÙÓÓ¶ÒÏÛÄàÕ½Î‘éÕŞİÄ‘…¤‡›~YrlßÓæÙÂÙÒâÆæÙ´ÈÇ×ÙÓÓ¶ÒÏÛÄàÕ½Îƒ³…ÛâÄÎÕæÔŞÕÄÎÇÕÉÓè±ÈÉßÑ×Ó¾ÊĞÛÀ¢Ñ{‹ÂßÓæÙÂÙÒâÆæÙ´—ÆéÛ”~Zrlˆ•”ÀÛÈæ×á×µÜÖßÓÙ~YrlâÆåè¯ÙÒé…¯”ÀÛÈæ×á×µÜÖßÓÙ¢·Î×ÕÓçá²ÎÕÕÔØÓ³ØÏëÒàç¯ÒÑÕÈåê¯ÏÌâÊšè±ÛÊÛÙÑÚ¹ÕÈŸ…Ÿ¥ZrlÕäÙÀÛÒÙÊåç¹×Ê¤××Ú¿ÛĞ×ÙÑİ¾ÙØêÄÖÕÄÊÖÛÙåœÄÊÕİÊæÓ¶ÒÏÛ‘’à±Ü×ÕÕáç|‰·èÚ×ZrlÕäÙÀÛÒÙÊåç¹×Ê¤Óáæ½ÊÏßß×Ó´Ê××äÙ¶ØÕãÆæÙ´ÈÇ×ÙÓÓ¶ÒÏÛÄàÕ½ÎŒ€n{}¹ÖÄİÊÑçÄÛØÙÙçæµ‰ –××äÂÎÖÛÓæÕÄÒÒä“Ôé¹ÕÇÕÎßÕ·ÎÂãÆâÓ—¶¤ØÕÕ¼ÎÇÕÉÓè±ÈÉßÑ×Ó¾ÊĞÛ‘’¥…’mn{á±×ÄİÊä¢ÃÊÙÛÄßÕÄÛÌîÄæã¯ÏÌâÊšİ½ÊÊÛÄåèÂŞÆêÚäÙ|‰Ğ×ÙäİÈÈÖ×Û×Ó¶ÒÏÛÄàÕ½ÎŒ€o{}YŒ†–ÕäÙÀÊÕÛ…ææ±ÒÑ–ÉÓè±slnäÙÀÛÈéÊàè±İÌåÓ ç¹ÖÓâÊÑ×¿×ÙÛ×åİ¿×ÂêÔÑİ½ĞÂãÆææ¹á‹éÈÓàµÍÂÚÆæÕ¯ÏÌâÊÑâ±ÖÈŸo{}YÛÈæ××çµ×××ÙÛã¾—ÅëÎŞØ¯ÙÄêÎ×âÄÈÕÛÕäÙÃÎÑêÆæİ¿×‹ßÓæÙÂÙÒâÆæÙ´ÈÇ×ÙÓÓ¶ÒÏÛÄàÕ½Î–ÎßÕ·ÎÂéÙäé³İØèÊ›~YrlèÊÓà¯ÍÄêÆ’±pÛÈæ××çµ×××ÙÛã¾—ÅëÎŞØ¯ÙÄêÎ×âÄÈĞ×ÙäİÈ‘ÌäÙ×æÀØÏ×Ù×Ø¯ÍÄêÆÑÚ¹ÕÈÕÓÓáµ•ƒßÒÓÛµÈÖê×ç×ÄŞÕÛ|}Yr‹ê×Óİ¾È»¢…ææ±ÒÑÕ¾› p‘×ÛØæÓ¨•ƒêÊåè¯ÂŒ–¢’×¼ÊÖéÎØİ³Ê×ßÔà¢µá×èÆÕè¯ÍÄêÆÑÚ¿ÛÂÙÓàœÂÎÄâÄÖÕÄÊ–• «ysmn{äÂÒÑê…ææ±ÒÑÕ¾|~Yrl™ˆ’ÆÅ×ƒ¹³À~YrlÙÑÓçÃÒÉßÈÓè¹ØÑ¤×çâ¯¬±Äææ±ÒÑÕ½”ÄÛÄßÓÑÍ|‰×ÛØæÓ¨•ƒêÊåè¯Â–œ§ pÙÕÛÉÛ×ÄÒÒäÄÖÕÄÊÖÛÙ›~Zrlˆ•”ÇÛÌêÊ’æµÙÒèÙ|}YrĞ×ÓÓÛµÛ‘í×ÛèµÈÕÛÕáæÄ‘Œ€o{Ù¼ÒÉÆÕè¹ØÑ–¢¯”rĞÕßÉŸ×¸ÎÆáÎàÛr’€o{}sŒƒ¹Í××»ÒÑİ…æÜµ‰ÌãÕÓ×Ä‰ÒÜ…ŞÙ±ÛÑßÓÙ”ÄÑÈ–Ìäİ´‰Òä…æÜµ‰ÓÛ×ØãÂÖÄäÈ×çpØÉ€n{—s‰§Æ®Ê¢ZslÕäİ¾İƒ˜ÀÑp½ÈéÙÛâ·‰×ŞÊ’ãÀİÌãÎåÕÄÒÒä… ¢~‹m€n{—s‰ÌêÊäÕÄÒÒä…æãpÙÕåÈ×çÃslÎæÙÂÊ×ßÔàÓ¼ÒÖê…¯”«ÆmnØãÂ‰Û–Îà”ÈÛÄäÌ×œ™–˜¢¤|‰”¦¬~YrlßÙ×æ±İÌåÓÑà¹Ü×¤Æâäµ×Çİ›~Zslˆ•”¹×Ìê…Şã·‰ÉßÑ×~YrÌãÕÓ×ÄÈÏåÌÑÚ¹ÕÈ–¢’ãÀÎÑ‡Şã·˜ÒæÙÛá¹ÜÄêÎáâ¯ÒĞæÆÕè~ÕÒİ‡”rà…Ÿo|}YÏÒè…ÛèµÛÄêÎáâpÒÑ–ÎæÙÂÊ×ßÔàÓ¼ÒÖêŸ|~Yrlæ×ÛâÄ‰…ÑÏ” ÛÒÙÊåç¹×Ê–ÎæÙÂÊ×ßÔà”r”Öê×šİÄÎÕ×ÙÛã¾’m€n{}sŒƒÆ××ä±ÛÈ–Ùá”ÀÛÈÚÎÕèpÍÄêÆ’¡pĞÌìÊ’Õ¾‰ÈãÕæípÊÕèÆë~Yrlæ××Ø¹Ì×ßÔàÓ´Ê××Ø×èp¦ƒÑÂ|~Yrl™ˆ’À¿ÊÇ–ÎßÕ·ÎƒéÙäé³İØèÊ’Õ¾ÍƒéÊæ”¶ÒÏÛÓÓáµÜmn{äÂÒÑê…”Ï{ÆƒÂÔÓØ¹×Ê–ÙÚÙpĞÕßÉ’¢~—…€o{}YÒĞ×Ì×ÓÃİÕëÈæéÂÎÂÜÎŞÙp¦ƒ˜Ìäİ´Ü’×ÑŞÓÂ×ÄÕÌäİ´ÈªÃ¦ÑãÀÒĞßß×Ø¯Ò×Û×Óè¹ØÑÕ‡çÄÛ‹ßÙ×æ±İÌåÓ›Ÿr—ÆéÛ”~YrléÈÓàµÍÂÚÆæÕ¯ÏÌâÊ’±p‹Ç×ÙÓçµİÖ¥×àÕÃÎÔÕÉÓè±È•Õ××Ú¿ÛĞ×Ù×Ø¯ÜÆ×Ñ×Ø~ÌÖì‡|}YrÌäÙ×æÀØÏ×Ù×Ø¯ÍÄêÆÑÚ¹ÕÈ–¢’–´Ê××Ø×èÃ˜ÕäÆåÙÁÈÇ×ÙÓÓ‚ÈÕÛËáæ½Ê×ÛÉÑç³ÊÏÛÉÑİ¾İÈèÕáà±İÈÚ“ÕçÆ‹m€n{}¹ÖÄİÊÑçÄÛØÙÙçæµ‰ –ÒÓâ±ĞÈè“Şã±ÍÂãÆææ¹áÂÜ×áá¯ÏÌâÊšİ½ÊÊÛÄåèÂŞÆêÚäÙ¯ÏÌâÊ›~Zrlˆ•”ÀÛÈæÆäÙpİÕ×Îà”´Ê××o{}YÙÕßÓæ”rÄÓ…Âæ¿ÌÈéØÛâ·‰ÌäÕçèp—‘¤‡|}YrÕÛÕäÙÃÎÑêÆæİ¿×‘éÎßä¼ÎÂÙÔàêµÛÖßÔàÓÄØÂßÒÙÓ½Ê×èÎêœÃÌÄâÊÖÓ´Ê××ÄØİ¼ÎŒ€n{}ÂÎÓèÊåÙ¾İÄêÎáâ~ËØßÑÖÓÀÊ×ßÊàè¯ÛÈæ××çµ×××ÙÛã¾‘ÌäÙ×æÀØÏ×Ù×Ø¯ÍÄêÆÑÚ¹ÕÈ¢…Ûá±ĞÈÕØææÅÌ×ë××Zrl××Õ¼ÈÇ×ÙÓ”‰ÕÛÕäÙÃÎÑêÆæİ¿×‘ØÚÛà´ÈÓ×ÙÛÙ¾İÂãÆææ¹á‹ßÓæÙÂÙÒâÆæÙ´ÈÇ×ÙÓÓ¶ÒÏÛ‘’İ½ÊÊÛÄåèÂŞÆêÚäÙyslnšèÂÊÌäÄÊ pİÕ×ÎàÓ©’–æÙÃİÂÎ‘’èµÜ×Õ¾›”‰ÆâÆåç¹ÏÌÙÆæİ¿×‘Ûİææ±Ì×ÕÉÓè±ÈÉå×Ñ×¾×‹èÊÓà¯ÍÄêÆ”€——Ÿo|}Yr†™…Äé¾‰¦Ä³|}YrÆâÆåç¹ÏÌÙÆæİ¿×‘èÚàÓ“·±ÙäÕ¹×ÂÎ‘’èÂÊÌäÄË pİÈéÙÑÌ|‰×ÛØæÓ©•ƒ«•”ÀÛÈÚÎÕè¹ØÑÕÉÓè±ÜÈê|~Yrl™ˆ’ëÂÒ×Û…Şã·slnæÙÃİÂ×ÈÕéÂÊÆï…¯”}šmn{èµÜ×ÕÑáçÃ‰ –’£~YrlêÊåè¯ÊØÙ…¯”}šmn{ÙÀØÆŞØ’±p–”€n{}¿ËÖÛ×èÕÄÒÒäÄÛâ¯İÕ×Îàİ¾ĞÂéÊæ”‰§o{}YØÅéÊäê±İÌåÓÑİ¾È×ÛØæÓÃÎ×–¢’¡slnßã´ÎÏÕÑáÛ¯ÏÌâÊ’±pØÓÛÓš–¼ØÊ¥ÒáØµÕÂê×Óİ¾ÒÑİ“Şã·‹–‡ä–yslnØãÂ‰ÏßÓ×”¹×ƒãÔÖÙ¼ÈÏåÌÑÚ¹ÕÈ°o{}YrÏßÓ×”‰ÏßÓ×¢ÂÎÓâÆÕÙx‹¿ä‡”r‹Œ€n{}YÕÌäÊÑİ¾ÈÄè×Óíp¦ƒâÎàÙ~ÜÓâÎæœr¤…Ÿo{}YrÌÜŞİ¾ÎÂßÓÑÕÂÛÄïÀ¢Ñp¦ –‡æÙÃİÂ×ÈÕéÂÊÆï‡›®Zrln{èµÜ×ÕÆÕ×ÅÛÄÙŞ’±pÕÌäÊÑİ¾ÈÄè×Óí«šÀ€n{}YÎÏßËšà¹×ÈÕÎàÓ±ÛÕ×ŞÍ¤­‰ ³…”èµÜ×ÕÑáçÃ‹Œ°o{}YrlêÊåè¯ÕÒéØ’±pÕÌäÊÑİ¾ÈÄè×Óí«šÀ€n{}YÎÏßËšà¹×ÈÕÎàÓ±ÛÕ×ŞÍ¤­‰ ³…”èµÜ×ÕÆç×r’€n{}Yr×ÛØæÓ±ŞÆ–¢’à¹×ÈÕÎàÓ±ÛÕ×ŞÍ¥­sln{Ù¼ÒÉÑÛâµÈÌäÄÓæÂÊÜÑ•Ï”¦ƒ˜Êâã³ÑÖ˜¬~Yrln×ä¿ÌËé…¯”¼ÒÑÛÄÛâ¯ÊÕèÆëÏÆmn{}µÕÌÜŞİ¾ÎÂßÓÑÕÂÛÄïÀ¢Ñp¦ –‡áÖÃÎÕìÆæİ¿×ÂßÓÑèÂÊÌäÎàÛr’€n{}YrÒØØ×æÆÊ×ßÔàÓ¹×Âê×Óİ¾ÒÑİÄåÙÄ‰ –ÑÛâµÈÌäÄÓæÂÊÜÑ–Ï~YrlÊŞİ¶‘ÏßÓ×Ó¹×Â××äÕÉÄ“Ó…¯±p‹ÒØØ×æÆÊ×ßÔàÓ¹×ÂêÊåèr’€n{}YrÒØØ×æÆÊ×ßÔàÓ¹×ÂêÊåè¯ÜÈê…¯”¼ÒÑÛÄÛâ¯ÊÕèÆëÏÆmn{á¿ÍÈâÄŞã·ÈÉßÑ×¢³ÕÒéÊšZslnÛáÀÊÆêÄŞã·ÈÉßÑ×¢ÇÛÌêÊšçÄÛ‹ßÙ×æ±İÌåÓ›ŸrÅ×êÊåè¯ÊÆÙÚäÕ³â¿ê‡çÄÛ‹êÊåè¯ÊÆÙÚäÕ³âŒ¡‡Îâr’mn{İ½ÙÄÙÙÑà¿ĞÂÜÎŞÙ~àÕßÙ×œÃİÕÎæÙÂÊ×ßÔà{‹¿êÙ×çÄÈÏåØåĞÄ‹éÙäœÄÎÖêÄŞãÃÜŒ¡‡Îâr’mn{İ½ÙÄÙÙÑà¿ĞÂÜÎŞÙ~àÕßÙ×œÃİÕÎæÙÂÊ×ßÔà{‹¿êÙ×çÄÈÄëÈÎèr”Öê×šèµÜ×ÕÆç×y”…ÒÓ”ZrlÎßä±Ì×ÕÑáÛ¯ÏÌâÊ ëÂÒ×ÛåèÂ‘ÌêÊäÕÄÒÒä–¬İÈæÔÕÜÃÅ×˜åèÂ‘ÈæÔÕÜÃ’˜Áà–yslnÛáÀÊÆêÄŞã·ÈÉßÑ×¢ÇÛÌêÊšçÄÛ‹ßÙ×æ±İÌåÓ›ŸrÅ×åÇåÙÂßÄêÎáâ¯ÒÑÕÙäÕ¹×ÌäÌÑçµİ¿ê‡çÄÛ‹åÇåÙÂßÄêÎáâ¯ÒÑÕÙäÕ¹×ÌäÌÑçµİŒ¡‡Îâr’mn{İ½ÙÄÙÙÑà¿ĞÂÜÎŞÙ~àÕßÙ×œÃİÕÎæÙÂÊ×ßÔà{‹¿êÔÔçµÛÙ×ÙÛã¾ÈÌäÄæÙÃİÂéÊæĞÄ‹éÙäœ¿ËÖÛ×èÕÄÒÒäÄÛâ¯İÈéÙÑçµİŒ¡‡Îâr’m€n{—s‰ÆâÔåÙpÕÒİ…Øİ¼ÎmnÛáÀÊÆêÄŞã·ÈÉßÑ×¢³ÕÒéÊšZsm€ˆ•¡}–£’•—ZŒ†–²³½‰†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•—sŒ†™ˆ•~sŒ£’Ÿ¡}Œ†€o|İ¶‰ÂÕÓÓáµÈÂ–¢¯”wÈÂãÆÛâ¯ÈŠ°o{á±ÒÑØëç~ÊÕİÛÍ¥ŠÆŒ€
+import matplotlib
+matplotlib.use('TkAgg')
+import os
+import getopt
+import sys
+
+
+import representation
+import preprocessing
+import classification
+import manager
+
+
+def main(argv):
+	##
+	## IN PROGRESS
+	##
+	## TODO : write help
+	##
+	##
+
+
+	action = "NA"
+
+
+	try:
+		opts, args = getopt.getopt(argv,"ha:",["action="])
+
+	except getopt.GetoptError:
+		sys.exit(2)
+
+	for opt, arg in opts:
+
+		## Display Help
+		if opt == '-h':
+			print "choucroute"
+			sys.exit()
+
+		## Get action
+		elif opt in ("-a", "--action"):
+			action = arg
+
+	if(action == "exemple"):
+
+		## test
+		## Prepare to predict data - give an empty array
+		prediction_dataset = []
+
+		## Build image map and save it
+		preprocessing.reformat_input_datasets("datasets/creditcard_reduce.csv", 30, True)
+		preprocessing.normalize_data("datasets/creditcard_reduce_reformated.csv")
+		image_structure = representation.build_image_map_GMA("datasets/creditcard_reduce_reformated_scaled.csv", 100)
+		manager.save_matrix_to_file(image_structure, "datasets/credit_image_structure.csv")
+
+		## prepare train data
+		representation.simple_conversion_to_img_matrix("datasets/creditcard_reduce_reformated_scaled.csv")
+		representation.build_patient_representation("datasets/creditcard_reduce_reformated_scaled_interpolated.csv", image_structure)
+		real_data = representation.build_patient_matrix("datasets/creditcard_reduce_reformated_scaled_interpolated.csv", image_structure)
+		(train_X, train_Y), (test_X, test_Y) = classification.extract_data_for_cnn(real_data, 0.72)
+
+		## Run CNN
+		classification.run_CNN(train_X, train_Y, test_X, test_Y, 20, prediction_dataset, image_structure)
+
+		## write report
+		manager.write_report()
+
+	elif(action == "test"):
+		print "Enter the Test Area"
+
+		print "[TEST] Overclocked files"
+		prediction_dataset = []
+		image_structure = manager.load_matrix_from_file("datasets/creditcard_reduce_overclocked_reformated_scaled_saved_matrix.csv")
+		representation.simple_conversion_to_img_matrix("datasets/creditcard_reduce_overclocked_reformated_scaled.csv")
+		representation.build_patient_representation("datasets/creditcard_reduce_overclocked_reformated_scaled_interpolated.csv", image_structure)
+		real_data = representation.build_patient_matrix("datasets/creditcard_reduce_overclocked_reformated_scaled_interpolated.csv", image_structure)
+		(train_X, train_Y), (test_X, test_Y) = classification.extract_data_for_cnn(real_data, 0.72)
+		classification.run_CNN(train_X, train_Y, test_X, test_Y, 20, prediction_dataset, image_structure)
+
+
+
+	elif(action == "rush"):
+
+		## Prepare to predict data - give an empty array
+		prediction_dataset = []
+
+		## Build image map and save it
+		preprocessing.reformat_input_datasets("datasets/rnaseq_data.csv", 0, True)
+		preprocessing.normalize_data("datasets/rnaseq_data_reformated.csv")
+		image_structure = representation.build_image_map_GMA("datasets/rnaseq_data_reformated_scaled.csv", 100)
+		manager.save_matrix_to_file(image_structure, "datasets/rnaseq_image_structure.csv")
+
+		## prepare train data
+		representation.simple_conversion_to_img_matrix("datasets/rnaseq_reformated_scaled.csv")
+		representation.build_patient_representation("datasets/rnaseq_reformated_scaled_interpolated.csv", image_structure)
+		real_data = representation.build_patient_matrix("datasets/rnaseq_reformated_scaled_interpolated.csv", image_structure)
+		(train_X, train_Y), (test_X, test_Y) = classification.extract_data_for_cnn(real_data, 0.72)
+
+		## Run CNN
+		classification.run_CNN(train_X, train_Y, test_X, test_Y, 50, prediction_dataset, image_structure)
+
+		## write report
+		manager.write_report()
+
+	elif(action == "HLA"):
+
+
+		## pre-set for HLA data
+
+		## Prepare to predict data - give an empty array
+		prediction_dataset = []
+
+		preprocessing.reformat_input_datasets("datasets/HLA_data_clean.csv", 562, True)
+		preprocessing.normalize_data("datasets/HLA_data_clean_reformated.csv")
+		image_structure = representation.build_image_map_GMA("datasets/HLA_data_clean_reformated_scaled.csv", 100)
+		manager.save_matrix_to_file(image_structure, "HLA_image_structure_100i.csv")
+
+		## prepare train data
+		representation.simple_conversion_to_img_matrix("datasets//HLA_data_clean_reformated_scaled.csv")
+		representation.build_patient_representation("datasets//HLA_data_clean_reformated_scaled_interpolated.csv", image_structure)
+		real_data = representation.build_patient_matrix("datasets//HLA_data_clean_reformated_scaled_interpolated.csv", image_structure)
+		(train_X, train_Y), (test_X, test_Y) = classification.extract_data_for_cnn(real_data, 0.72)
+
+		## Run CNN
+		classification.run_CNN(train_X, train_Y, test_X, test_Y, 20, prediction_dataset, image_structure)
+
+
+	elif(action == "run"):
+
+			## run solver on the target file
+			## IN PROGRESS
+
+			## Prepare to predict data - give an empty array
+			prediction_dataset = []
+
+			## deal with file names
+			target_file = argv[2]
+			reformated_data_file_name = target_file.split(".")
+			reformated_data_file_name = reformated_data_file_name[0]+"_reformated.csv"
+			scaled_data_file_name = reformated_data_file_name.split(".")
+			scaled_data_file_name = scaled_data_file_name[0]+"_scaled.csv"
+			matrix_save_file_name = scaled_data_file_name.split(".")
+			matrix_save_file_name = matrix_save_file_name[0]+"_saved_matrix.csv"
+			interpolated_data_file_name = scaled_data_file_name.split(".")
+			interpolated_data_file_name = interpolated_data_file_name[0]+"_interpolated.csv"
+
+			## preprocessing
+			last_pos = preprocessing.get_number_of_columns_in_csv_file(target_file) -1
+			preprocessing.reformat_input_datasets(target_file, last_pos, True)
+			preprocessing.normalize_data(reformated_data_file_name)
+			image_structure = representation.build_image_map_GMA(scaled_data_file_name, 15)
+			manager.save_matrix_to_file(image_structure, matrix_save_file_name)
+
+			## prepare train data
+			representation.simple_conversion_to_img_matrix(scaled_data_file_name)
+			representation.build_patient_representation(interpolated_data_file_name, image_structure)
+			real_data = representation.build_patient_matrix(interpolated_data_file_name, image_structure)
+			(train_X, train_Y), (test_X, test_Y) = classification.extract_data_for_cnn(real_data, 0.7)
+
+			print train_Y
+
+			## Run CNN
+			classification.run_CNN(train_X, train_Y, test_X, test_Y, 75, prediction_dataset, image_structure)
+
+			## write report
+			manager.write_report()
+
+	elif(action == "grid-checking"):
+
+		## Checking the impact of learning the grid on the performances of
+		## DPIX.
+
+		print "[+] Testing the optimisation ..."
+
+		## iteration to process
+		iteration_list = []
+		for x in xrange(10, 300, 10):
+			iteration_list.append(x)
+
+
+		## init log file
+		impact_log_file = open("log/optimisation_impact.log", "w")
+
+		for iteration in iteration_list:
+
+			print "[+] Processing iteration "+str(iteration)
+
+			## Prepare to predict data - give an empty array
+			prediction_dataset = []
+
+			## Load image structure and set filenames
+			print "[+] Loading the grid ..."
+
+			image_structure_file = "grids/all_rna_grid_GMA_opimized_iteration_"+str(iteration)+".csv"
+			scaled_data_file = "datasets/rnaseq_data_2_reformated_scaled.csv"
+			interpolated_data_file = "datasets/rnaseq_data_2_reformated_scaled_interpolated.csv"
+
+			image_structure = manager.load_matrix_from_file(image_structure_file)
+
+			## prepare train data
+			print "[+] Processing input ..."
+			representation.simple_conversion_to_img_matrix(scaled_data_file)
+			representation.build_patient_representation(interpolated_data_file, image_structure)
+			real_data = representation.build_patient_matrix(interpolated_data_file, image_structure)
+			(train_X, train_Y), (test_X, test_Y) = classification.extract_data_for_cnn(real_data, 0.4)
+
+			## Run CNN
+			classification.run_CNN(train_X, train_Y, test_X, test_Y, 50, prediction_dataset, image_structure)
+
+			## write log
+			test_accuracy = -1
+			test_loss = -1
+			test_auc = -1
+			epochs = -1
+			observation_in_training_set = -1
+			observation_in_test_set = -1
+			model_log_file = open("log/model_training.log", "r")
+			for line in model_log_file:
+				line = line.replace("\n", "")
+				line_in_array = line.split(";")
+				if(line_in_array[0] == "test_accuracy"):
+					test_accuracy = line_in_array[1]
+				elif(line_in_array[0] == "test_loss"):
+					test_loss = line_in_array[1]
+				elif(line_in_array[0] == "test_auc"):
+					test_auc = line_in_array[1]
+				elif(line_in_array[0] == "epochs"):
+					epochs = line_in_array[1]
+				elif(line_in_array[0] == "observation_in_training"):
+					observation_in_training_set = line_in_array[1]
+				elif(line_in_array[0] == "observation_in_test"):
+					observation_in_test_set = line_in_array[1]
+			model_log_file.close()
+
+			impact_log_file.write(str(iteration)+"\ttest_accuracy\t"+str(test_accuracy)+"\n")
+			impact_log_file.write(str(iteration)+"\ttest_loss\t"+str(test_loss)+"\n")
+			impact_log_file.write(str(iteration)+"\ttest_auc\t"+str(test_auc)+"\n")
+			impact_log_file.write(str(iteration)+"\tepochs\t"+str(epochs)+"\n")
+			impact_log_file.write(str(iteration)+"\tobservation_in_training_set\t"+str(observation_in_training_set)+"\n")
+			impact_log_file.write(str(iteration)+"\tobservation_in_test_set\t"+str(observation_in_test_set)+"\n")
+
+		## close log file
+		impact_log_file.close()
+
+
+
+##------##
+## MAIN ###################################################################
+##------##
+
+
+if __name__ == '__main__':
+	main(sys.argv[1:])
